@@ -1,0 +1,5 @@
+[[Blessing]] 
+[[Mana]]
+[[Ki]]
+[[Rank]]
+[[Rift]]
