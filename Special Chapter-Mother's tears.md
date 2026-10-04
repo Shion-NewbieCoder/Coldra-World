@@ -1,4 +1,3 @@
-
 # Special Chapter — Mother's Tears
 
 Nơi này được gọi là Chaos-Realm.
@@ -531,92 +530,314 @@ Lara khẽ mở mắt.
 
 "...Mẹ?"
 
-Khi ánh mắt của Lara dần nhìn thấy rõ hơn thì trước mặt Lara là Mio, Lara đang nằm trên gối của mẹ mình
+Tầm nhìn còn mờ đục của cô bé dần rõ hơn. Ngay phía trên là gương mặt quen thuộc của Mio. Hóa ra, từ lúc nào Lara đã được mẹ đặt nằm gối đầu lên đùi mình.
 
-"Con tỉnh rồi sao? Ngủ ngon chứ?" Mio cười nhẹ với Lara
-"Đây là đâu vậy? Cha đâu ạ? Cả Kara nữa? Mọi người đâu rồi?"
-Mio nhẹ xoa đầu Lara
-"Bình tĩnh nào, chúng ta sẽ gặp lại họ sớm thôi, chúng ta hiện đang ở một thế giới khác, mẹ tin là vậy"
-Bên ngoài, ánh nắng nhẹ chiễu qua những đám mây, những tiếng chim hót líu lo, tiếc nước rả rích
-"Mẹ nghĩ, chúng ta đang ở trong một hang động, gần một bìa rừng nào đó, có vẻ như mẹ con chúng ta đang ở trên một khu đảo"
-Lara nhẹ ngồi dậy
-"Vậy. . .Con. . ." Lara khẽ siết tay và cảm nhận thấy rằng mình vẫn đang cầm những gì còn sót lại của loài hoa mà Lara đã lấy trong khu rừng ở Chaos-Realm
-"Ồ, con đã đi tìm chúng cho mẹ sao?" Mio nhẹ xoa đầu Lara
-"Dạ, cũng vì vậy mà chúng ta. . ."
-Mio nhẹ véo má Lara
-"Nào, con gái yêu của mẹ thì không nên khóc nhè, phải mạnh mẽ và lạc quan chứ, chúng ta sẽ trở về được thôi"
-"Vâng" Lara dần nở một nụ cười tươi
-"Trước tiên thì, tìm cái gì ăn trước đã nhỉ? Con đói chưa?"
-Lara cười lớn hơn
-"Rồi ạ"
-Mio từ từ đứng dậy nhưng phần đầu của cô ấy bị đập nhẹ vô nóc hang
-"Chà, có vẻ như nơi này hơi bé thật"
-Lara cười khúc khích trước khi đứng dậy và đi theo Mio ra ngoài
+"Con tỉnh rồi sao? Ngủ ngon chứ?"
 
-Cả hai hiện đang ở trên một hòn đảo vắng, ánh nắng ấm áp, tiếng chim biển, tiếng sóng, tiếng thiên nhiên, cảnh vật thực sự rất khác lúc còn ở Chaos-realm
-"Trời, đẹp quá, nơi này, con thấy thật tuyệt vời"
-Mio cười nhẹ và xoa đầu Lara
-"Được rồi, đến lúc để mẹ dậy con gái yêu của mình một số kỹ năng cần thiết để sinh tồn nhá?"
+Mio mỉm cười, cúi xuống nhìn con gái.
+
+"Đây... đây là đâu vậy mẹ? Cha đâu ạ? Cả Kara nữa? Mọi người đâu rồi?"
+
+Hàng loạt câu hỏi bật ra khiến Mio phải nhẹ nhàng xoa đầu cô bé.
+
+"Bình tĩnh nào. Chúng ta sẽ sớm gặp lại họ thôi. Còn hiện tại... mẹ nghĩ hai mẹ con mình đã tới một thế giới khác rồi."
+
+Từ phía cửa hang, ánh nắng dịu nhẹ len vào. Tiếng chim hót xen lẫn tiếng nước chảy róc rách, hoàn toàn khác với những âm thanh quen thuộc của Chaos-Realm.
+
+"Có vẻ chúng ta đang ở trong một hang động gần bìa rừng. Mẹ đoán đây là một hòn đảo."
+
+Lara từ từ ngồi dậy. Khi vô thức siết bàn tay, cô bé mới nhận ra mình vẫn đang nắm những cành hoa cuối cùng còn sót lại từ khu rừng ở quê nhà. Các cánh hoa đã nhàu nát, một số thậm chí chẳng còn nguyên vẹn.
+
+"Vậy... con..."
+
+Mio nhìn xuống bàn tay nhỏ ấy, rồi khẽ xoa đầu Lara.
+
+"Ồ, con đã đi tìm chúng để tặng mẹ sao?"
+
+"Dạ... Cũng vì vậy mà chúng ta..."
+
+Giọng Lara nhỏ dần. Mio lập tức đưa tay véo nhẹ má con gái.
+
+"Nào, công chúa của mẹ không nên khóc nhè như thế chứ! Phải mạnh mẽ và lạc quan lên nào. Mẹ con mình nhất định sẽ tìm được đường trở về."
+
+"...Vâng!"
+
+Lara ngẩng đầu, cố nở một nụ cười.
+
+"Trước tiên thì, tìm gì đó để ăn đã nhỉ? Con đói chưa?"
+
+"Rồi ạ!"
+
+Mio chống tay đứng lên.
+
+*Cộc!*
+
+"Á!"
+
+Đầu cô va nhẹ vào trần hang thấp ngay phía trên.
+
+"Chà... Có vẻ nơi này hơi bé thật."
+
+Lara bật cười khúc khích trước dáng vẻ ngượng ngùng của mẹ, rồi nhanh chóng đứng dậy đi theo cô ra ngoài.
+
+---
+
+Trước mắt hai mẹ con là một hòn đảo vắng với bãi biển trải dài dưới ánh nắng ấm áp. Tiếng chim biển vang vọng trên cao, những con sóng nối tiếp nhau xô vào bờ, còn cây cối ven rừng lay động trong gió.
+
+Khung cảnh này khác xa bầu trời đỏ thẫm mà Lara đã quen nhìn thấy từ khi sinh ra.
+
+"Oa... Đẹp quá! Mẹ ơi, nơi này tuyệt thật đấy!"
+
+Mio mỉm cười, đưa tay vuốt tóc con gái.
+
+"Được rồi! Đến lúc mẹ dạy công chúa của mình vài kỹ năng sinh tồn cần thiết rồi nhỉ?"
+
 "Dạ!"
 
-Cả hai dành thời gian sinh sống trên đảo, săn bắt, hái lượm, vui vẻ với nhau nhưng. . .
+Vậy là cuộc sống của hai mẹ con trên đảo hoang bắt đầu.
 
-Một đem nọ, khi Lara đã ngủ say, Mio ngồi cạnh bên đống lửa và nhẹ vạch áo ra, phần bụng của cô ấy đã xuất hiện những vết biến dạng
-"Mana ở nơi này, khác với Chaos-realm. . ."
-Mio quay qua và nhẹ xoa đầu con gái của mình, cũng như truyền lại Mana của bản thân, cố gắng kiềm chế sự biến đổi ở trong Lara 
-"Con gái của mẹ, dù sau này có ra sao, mẹ vẫn sẽ ở bên con"
-Và rồi Mio nằm xuống, ôm lấy Lara khi cả hai chìm vô giấc ngủ
+Họ cùng săn bắt, hái lượm, tìm nguồn nước và học cách chế biến những thứ kiếm được. Dù chẳng thể biết khi nào mới được trở về Wavery, Mio vẫn luôn tìm cách giữ cho mỗi ngày trôi qua có chút gì đó vui vẻ.
 
-Những tháng ngày sinh tồn ở đảo hoang này vẫn tràn ngập niềm vui, Mio quả thực rất biết cách giữ khí thế và năng lượng cho cả hai mẹ con. Mấy ngày đầu, Lara vẫn vụng về săn cá, câu cá, chế biến, hái lượm cũng rất vụng nhưng Mio chỉ rất nhẹ nhàng và pha trò để khiến hai mẹ con vui
-"Nào, con chỉ cần kiểm soát lực và. . . NÉM!"
-Lara ném trúng một con cá nhỏ
-"YAY! Con làm được rồi đó Lara"
-Lara cười không khép được miệng, mặc dù ở đằng sau hai người, chiếc rổ cá tự thủ công do Mio làm cho cả hai, ngoài của Lara thì Mio đã đầy ắp cá từ khi nào 
+Thế nhưng, khi Lara đã chìm vào giấc ngủ bên đống lửa trong một đêm nọ, nụ cười trên gương mặt Mio dần biến mất.
 
-"Phải phải, nướng phải chín cả hai mặt thì mới ngon, con học nhanh ghê ha công chúa của mẹ" Mio cười thoải mái và xoa đầu Lara
-"Vị cũng không tệ, thực sự trước khi mẹ làm hoàng hậu là mẹ ăn mấy món như này sao, có cả những kinh nghiệm và phiêu lưu nữa"
-Mio gật đầu 
-"Phải, con thấy sao khi có một người mẹ không ra dáng hoàng tộc?"
-Lara cười lớn và dụi đầu vô lòng mẹ
-"Con thấy mẹ ngầu lắm, rất là tuyệt luôn"
-Mio xoa đầu của Lara, nhưng mặt của cô ấy hơi nhăn lại, phần bụng của Mio hơi nhói lên
-"Hôm nay chúng ta nên đi nghỉ sớm ha"
-"Ể? Vẫn còn sớm mà mẹ"
-Mio cười thoải mái
-"Ngủ sớm thì mới cao lớn như mẹ được, vậy nhá, cùng đi ngủ thôi nào"
-"Dạaaaaa" Lara ngáp nhẹ trước khi cả hai mẹ con ôm nhau ngủ
+Cô khẽ vén áo, nhìn xuống vùng bụng của mình.
 
-Thoáng đã trôi qua 7 tháng, những biến đổi ở phía Mio đã hiện rất rõ, cô ấy cũng dần mất khả năng nhận thức nhưng bản năng làm mẹ vẫn còn, cơ thể bị biến đổi đã khiến cô ấy mất đi dáng vẻ của một nữ hoàng mà giờ chỉ là một hình hài quái vật rất lớn. Dẫu vậy, Mio vẫn luôn bảo vệ Lara, vẫn chăm sóc con bé, vẫn xoa đầu và ngủ cạnh. Lara cũng đã phải tự mình bước đi, vận dụng những gì mà mẹ mình dậy để sinh tồn và cũng như tìm cách hóa giải cho mẹ mình. . . Nhưng dường như, mọi thứ rất vô vọng
-"Hôm nay con đã săn được rất nhiều cá, cũng hái được nhiều trái đỏ ngon nữa"
-Bàn tay to lớn đầy vuốt nhọn của Mio khẽ đưa lên và xoa đầu của Mio, rất nhẹ
-"Chúng ta sẽ ổn thôi mà, chúng ta có nhau mà, mẹ nhỉ?"
-Mio chỉ gầm gừ nhẹ nhưng vẫn tiếp tục xoa đầu Lara
-"Biến động Mana. . ."
-Lara nhẹ đưa cánh tay của mình lên, bàn tay giờ đã xuất hiện những móng vuốt nhỏ, Lara cũng mọc ra cả phần đuôi nhọn nữa, nhưng Lara vẫn chưa hiểu sao mình không bị biến đổi nặng giống mẹ đến vậy
-"Mọi chuyện. . .Sẽ ổn thôi" Lara dúc vô lòng Mio và ngủ thiếp đi
+Trên da đã xuất hiện những vết biến dạng kỳ lạ.
 
-Nhanh chóng, thời gian đã trôi qua tròn 1 năm, vẫn chưa có dấu hiệu gì của mọi người đến cứu lấy hai mẹ con, cơ thể của Lara cũng xuất hiện những biến đổi nhỏ, không nhiều nhưng đủ để thấy rằng cô ấy đang dần mất đi hình hài của cô ấy trước khi. Lara quyết định rằng, mình phải rời khỏi hòn đảo này, chí ít phải như vậy thì mới có cách chữa được cho cả hai, dù rằng rất nguy hiểm nhưng phải vậy
+"Mana ở nơi này... khác với Chaos-Realm..."
 
-Mio dường như cũng cảm nhận được, mặc dù đã không còn minh mẫn như hồi trước nhưng cô ấy vẫn có thể hiểu được suy nghĩ và cảm xúc của con mình thông qua sợi dây máu mủ liên kết giữa cả hai. Lara, ngồi trên vai của mẹ mình khi Mio từ từ bơi ở trên đại dương. . . Và đang hướng dần đến phía [[Seawind]]
+Mio quay sang nhìn Lara đang ngủ say. Cô nhẹ nhàng đặt tay lên đầu con gái, truyền một phần Mana của bản thân sang cơ thể nhỏ bé ấy, cố gắng kìm hãm những biến đổi tương tự đang âm thầm xảy ra bên trong Lara.
 
-Mọi việc dần trở nên hỗn loạn, Lara mặc dù đã cố giải thích nhưng những sinh vật đó chỉ có sự sợ hãi, khả năng giao tiếp giữa khác loài là
-". . .Không thể giao tiếp" Lara cắn chặt môi
-"Chúng ta không nên ở đây lâu hơn mẹ, đi th-"
-Trước khi cả hai kịp rút lui, Mio đã gầm lên vì cảm nhận được sát ý hướng về phía Lara từ những sinh vật bên dưới và rồi sự hỗn loạn xảy ra, Lara bị ngã khỏi vai của mẹ mình và rơi xuống gần đó, cô ấy vẫn cố gắng níu lấy mẹ mình
-"Mẹ, không được, chúng ta nên rời đi, Mẹ!"
-Mio vẫn gầm lên và lao vào tàn phá mọi thứ gần đó, Lara chỉ có thể chứng kiến trong bất lực, cô ấy biết rằng mẹ mình rất mạnh và có khi sẽ hủy diệt nơi này thật
-"Mẹ. . ." Lara khóc, những giọt nước mắt rơi xuống hòa vào làn nước biển mặn, sự bất lực ấy, Lara thực sự muốn rằng mình có thể lạc quan như mẹ mình vậy
+"Con gái của mẹ... Dù sau này có ra sao, mẹ vẫn sẽ luôn ở bên con."
 
-Và rồi, *Vút*, một thứ gì đó đã xuyên qua cơ thể khổng lồ của Mio, lực ném đủ mạnh để khiến cho khi va chạm khiến cho nước ở phái sau Lara bắn tung lên, cơ thể của Mio ngã gục xuống
-". . .Mẹ. . .MẸ!" Lara lao đến, cố gắng chạm vô khuôn mặt của Mio mặc dù đã bị biến dạng nặng nề
-"Lara" Mio thều thào, ý thức của sinh vật trước khi rời xa trần thế, đã trở lại minh mẫn
-"Mẹ xin lỗi. . ."
-"KHÔNG! KHÔNG ĐƯỢC! Mọi chuyện sẽ ổn thôi mà, mọi chuyện sẽ ổn thôi mà mẹ, vậy nên đừng đi mà, mẹ ơi, MẸ!" Lara vừa khóc vừa cố gắng truyền Mana của mình cho Mio, như cách mà Mio đã từng dậy cô ấy khi cả hai còn sống trên đảo
-"Lara. . ." Mio, mặc dù không thể cử động được nữa, vẫn sử dụng chút năng lực cuối cùng của mình, một loại Magic hệ thủy được tạo từ nước biển và nước mắt của chính mình để bao bọc lấy Lara trong một chiếc kén bằng Mana của Mio trước khi dịch chuyển con bé về lại trên đảo
+Cô nằm xuống cạnh Lara, kéo con vào lòng rồi khép mắt.
 
-Lara ngồi thẫn thờ trên đảo, nhìn vô tay của mình, rồi lại nhìn vô khoảng không vô địch trước mắt, Lara khóc, rất lớn, nức nở, cô ấy gọi mẹ, trong tiềm thức của Lara vẫn còn tiếng nói của Mio rất rõ
-"Lara, hãy sống sót, hãy trở thành một người tốt, hãy làm những điều khiến con không hối hạn và. . ."
-Hình bóng của Mio hiện ra bằng Mana ở sau lưng của Lara, nhẹ nhàng quỳ xuống và ôm lấy Lara trước khi thì thầm
-"Mẹ yêu con"
+---
 
-Hoàng hôn dần chìm xuống, tiếng khóc của Lara vẫn vọng đi trong hòn đảo hoang vắng đầy ắp kỉ niệm giữa cả hai người họ. . .
+Những tháng ngày sinh tồn trên đảo vẫn tràn ngập tiếng cười, phần lớn là nhờ Mio chưa bao giờ để con gái mình phải buồn bã quá lâu.
+
+Những ngày đầu, Lara vụng về trong gần như mọi việc. Từ săn cá, câu cá cho tới hái lượm và chế biến thức ăn, cô bé đều phải nhờ mẹ chỉ dẫn từng chút một.
+
+"Nào, con chỉ cần kiểm soát lực, nhắm cho chuẩn và... NÉM!"
+
+Lara dồn sức phóng chiếc lao tự chế về phía mặt nước.
+
+*Ùm!*
+
+Một con cá nhỏ bị bắt trúng.
+
+"Ể!? MẸ ƠI! CON LÀM ĐƯỢC RỒI!"
+
+"YAY! Giỏi lắm, Lara!"
+
+Mio vui vẻ vỗ tay cổ vũ, khiến cô bé cười đến mức không khép được miệng.
+
+Phía sau hai người, chiếc rổ đựng cá do Mio tự tay đan đã đầy ắp từ lúc nào. Dĩ nhiên, ngoài chiến lợi phẩm bé xíu vừa rồi của Lara, phần lớn số cá còn lại đều do Mio bắt được.
+
+Đến lúc chuẩn bị bữa ăn, công chúa nhỏ lại được mẹ hướng dẫn cách nướng cá.
+
+"Phải, phải! Nhớ trở đều cho chín cả hai mặt nhé. Như thế mới ngon được. Con học nhanh ghê ha, công chúa của mẹ!"
+
+Lara cẩn thận làm theo. Khi miếng cá đầu tiên hoàn thành, cô bé thổi phù phù cho nguội rồi cắn thử một miếng.
+
+"Ưm! Vị cũng không tệ!"
+
+Cô ngước nhìn Mio, vẻ tò mò hiện rõ trên gương mặt.
+
+"Mẹ ơi, trước khi làm Hoàng hậu, mẹ cũng thường ăn những món như thế này sao? Mẹ còn có cả kinh nghiệm sinh tồn và đi phiêu lưu nữa nhỉ?"
+
+Mio gật đầu, thoải mái thưởng thức phần ăn của mình.
+
+"Đúng vậy. Thế con thấy sao khi có một người mẹ chẳng ra dáng hoàng tộc chút nào?"
+
+Lara lập tức bật cười, nghiêng người dụi đầu vào lòng mẹ.
+
+"Con thấy mẹ ngầu lắm! Tuyệt vời luôn ấy!"
+
+"Haha, vậy sao?"
+
+Mio xoa đầu con gái. Nhưng giữa chừng, một cơn đau nhói bất chợt chạy qua vùng bụng khiến nét mặt cô hơi nhăn lại.
+
+Chỉ một thoáng thôi.
+
+Mio nhanh chóng lấy lại nụ cười thường ngày.
+
+"À, hôm nay chúng ta nghỉ sớm một chút nhé?"
+
+"Ể? Nhưng vẫn còn sớm mà mẹ!"
+
+"Ngủ sớm thì mới cao lớn được như mẹ chứ! Nào, đi ngủ thôi!"
+
+"Dạaaaa..."
+
+Lara kéo dài giọng, rồi cũng không kìm được một cái ngáp. Chẳng bao lâu sau, hai mẹ con đã nằm cạnh nhau, ôm lấy nhau trong giấc ngủ.
+
+---
+
+Bảy tháng trôi qua.
+
+Những biến đổi trên cơ thể Mio giờ đây đã không còn có thể che giấu. Hình hài của cô lớn dần, méo mó đến mức khó nhận ra dáng vẻ vị Hoàng hậu từng đứng trong căn bếp Wavery. Cùng với sự thay đổi ấy, khả năng nhận thức của Mio cũng ngày một suy giảm.
+
+Thế nhưng, cô vẫn chăm sóc Lara.
+
+Vẫn bảo vệ con bé, vẫn để con nằm cạnh mình mỗi đêm. Ngay cả khi bàn tay đã trở nên khổng lồ, đầy những móng vuốt sắc nhọn, Mio vẫn luôn cố cử động thật nhẹ mỗi lần xoa đầu con gái.
+
+Lara cũng chẳng còn là công chúa nhỏ vụng về của những ngày đầu. Cô bé đã học được cách tự tìm thức ăn, dựng chỗ nghỉ, vận dụng những gì mẹ từng dạy để sinh tồn. Ngoài những việc ấy, Lara còn không ngừng tìm cách hóa giải sự biến đổi của Mio.
+
+Nhưng mọi nỗ lực đến lúc này đều chưa mang lại kết quả.
+
+"Mẹ ơi! Hôm nay con săn được rất nhiều cá, còn hái được cả đống trái đỏ ngon nữa này!"
+
+Lara đặt thành quả của mình xuống trước mặt mẹ.
+
+Một bàn tay to lớn, phủ đầy những móng vuốt, chậm rãi đưa lên rồi khẽ đặt lên đầu cô bé.
+
+Thật nhẹ.
+
+"Chúng ta sẽ ổn thôi mà. Chúng ta vẫn có nhau, mẹ nhỉ?"
+
+Mio đáp lại bằng vài tiếng gầm gừ khe khẽ. Bàn tay ấy vẫn tiếp tục vuốt tóc Lara như một thói quen chưa từng thay đổi.
+
+"Biến động Mana..."
+
+Lara cúi nhìn hai bàn tay của chính mình. Những móng vuốt nhỏ đã dần mọc ra từ đầu ngón tay, phía sau cơ thể cô bé cũng xuất hiện một chiếc đuôi nhọn.
+
+Cô không hiểu tại sao mình lại biến đổi chậm hơn mẹ đến vậy.
+
+Nhìn cơ thể khổng lồ trước mặt, Lara im lặng một lúc rồi rúc vào lòng Mio.
+
+"Mọi chuyện... sẽ ổn thôi."
+
+Cô bé khép mắt, thiếp đi bên cạnh mẹ.
+
+---
+
+Rồi thời gian tròn một năm.
+
+Vẫn không có dấu hiệu nào cho thấy những người ở Wavery sẽ tìm được hai mẹ con. Sự biến đổi trên cơ thể Lara tuy chậm nhưng vẫn tiếp diễn. Cô biết nếu cứ ở lại hòn đảo này, cả hai có lẽ sẽ không bao giờ tìm được cách chữa trị.
+
+Lara quyết định phải rời đi.
+
+Dù không biết bên ngoài có gì, dù chuyến đi có thể rất nguy hiểm, cô vẫn muốn thử tìm một nơi có người đủ khả năng giúp mẹ và bản thân mình.
+
+Mio dường như hiểu được mong muốn ấy.
+
+Cô đã không còn minh mẫn như trước, nhưng mối liên kết máu mủ giữa hai mẹ con vẫn giúp cô cảm nhận được phần nào suy nghĩ và cảm xúc của Lara.
+
+Và thế là, cô bé ngồi trên vai mẹ khi Mio chậm rãi bơi qua đại dương mênh mông.
+
+Đích đến của họ dần hiện ra ở phía xa.
+
+**[[Seawind]].**
+
+---
+
+Mọi chuyện không diễn ra như Lara hy vọng.
+
+Những sinh vật nơi đây vừa nhìn thấy hình hài khổng lồ của Mio đã lập tức hoảng sợ. Lara cố gắng giải thích, cố nói rằng hai mẹ con chỉ đang tìm kiếm sự giúp đỡ, nhưng những lời cô nói dường như chẳng thể đến được với họ.
+
+Khác biệt giữa các chủng loài đã khiến việc giao tiếp trở thành một trở ngại quá lớn.
+
+"...Không thể giao tiếp được."
+
+Lara cắn chặt môi, nhìn về phía mẹ.
+
+"Chúng ta không nên ở đây lâu đâu mẹ. Đi th—"
+
+Cô bé chưa kịp nói hết câu thì Mio bất ngờ gầm lên.
+
+Bà đã cảm nhận được sát ý đang hướng về phía Lara từ những sinh vật phía dưới.
+
+Mọi thứ nhanh chóng trở nên hỗn loạn. Giữa những chuyển động dữ dội của cơ thể mẹ, Lara mất thăng bằng và ngã khỏi vai Mio, rơi xuống vùng nước gần đó.
+
+"MẸ! KHÔNG ĐƯỢC! Chúng ta nên rời đi thôi! MẸ!"
+
+Lara cố bám lấy mẹ, nhưng Mio đã lao vào phá hủy những thứ xung quanh. Những tiếng gầm cùng các đợt tấn công nối tiếp nhau khiến khu vực ven biển chìm trong hỗn loạn.
+
+Lara chỉ có thể bất lực nhìn theo.
+
+Cô bé biết mẹ mình rất mạnh. Với sức mạnh hiện tại, Mio thậm chí có thể hủy diệt cả nơi này nếu mọi chuyện tiếp tục leo thang.
+
+"Mẹ..."
+
+Nước mắt Lara rơi xuống, hòa vào làn nước biển mặn chát.
+
+Cô thật sự ước mình có thể lạc quan như mẹ. Ước rằng chỉ cần cố thêm một chút, hai mẹ con vẫn có thể cùng nhau vượt qua chuyện này, giống như suốt một năm qua.
+
+Nhưng rồi—
+
+*Vút!*
+
+Một thứ gì đó bất ngờ xuyên thẳng vào cơ thể khổng lồ của Mio.
+
+Không có đường bay nào mà Lara kịp nhìn rõ. Cô chỉ thấy mặt nước phía sau mẹ bắn tung lên dưới tác động của cú đánh, rồi cơ thể Mio chao đảo dữ dội.
+
+Vết thương ấy không còn khép lại như những lần trước.
+
+Giữa những đợt tấn công vẫn đang tiếp diễn từ phía bờ biển, Mio dần không thể trụ vững. Cuối cùng, cơ thể khổng lồ của bà đổ gục xuống.
+
+"...Mẹ?"
+
+Lara chết lặng trong thoáng chốc.
+
+"MẸ!"
+
+Cô lao đến, cố chạm vào khuôn mặt của Mio. Dẫu hình hài ấy đã biến dạng nặng nề đến mức chẳng còn giống người mẹ trong ký ức, Lara vẫn nhận ra bà.
+
+"Lara..."
+
+Một giọng nói yếu ớt vang lên.
+
+Ngay trước khi sự sống dần rời khỏi cơ thể, ý thức của Mio dường như đã trở lại minh mẫn trong một khoảnh khắc ngắn ngủi.
+
+"Mẹ... xin lỗi..."
+
+"KHÔNG! KHÔNG ĐƯỢC!"
+
+Lara vừa khóc vừa lắc đầu.
+
+"Mọi chuyện sẽ ổn thôi mà! Chúng ta sẽ ổn thôi mà, mẹ! Vậy nên... đừng đi! Mẹ ơi, MẸ!"
+
+Cô bé cố truyền Mana của mình sang Mio, giống hệt cách mẹ từng dạy và từng làm cho cô khi cả hai còn sống trên đảo.
+
+Nhưng lần này, dù Lara có cố gắng đến đâu, cô vẫn không thể khiến mẹ khỏe lại.
+
+"Lara..."
+
+Mio không còn đủ sức để cử động. Dẫu vậy, bà vẫn gom chút năng lực cuối cùng còn sót lại.
+
+Nước biển hòa cùng những giọt nước mắt của chính bà, kết thành một loại Magic hệ Thủy, bao bọc Lara trong chiếc kén được duy trì bằng Mana của Mio.
+
+Và rồi, bà dịch chuyển con gái trở về hòn đảo nơi hai mẹ con đã từng sinh sống.
+
+---
+
+Lara ngồi thẫn thờ trên đảo.
+
+Cô cúi nhìn đôi bàn tay mình, rồi ngước lên khoảng không vô định phía trước.
+
+Không còn bóng dáng khổng lồ luôn chờ đợi cô trở về sau mỗi lần săn bắt. Không còn bàn tay đầy móng vuốt vẫn cố xoa đầu cô thật nhẹ. Chỉ còn hòn đảo quen thuộc, tiếng sóng và những kỷ niệm của hai mẹ con.
+
+"...Mẹ?"
+
+Lara gọi khẽ.
+
+Không ai đáp lại.
+
+"Mẹ ơi..."
+
+Rồi cô bật khóc, tiếng nức nở lớn dần giữa khoảng không vắng lặng.
+
+Trong tâm trí Lara, giọng nói của Mio vẫn còn rõ ràng, như thể mẹ đang ngồi ngay cạnh cô.
+
+"Lara, hãy sống sót. Hãy trở thành một người tốt, hãy làm những điều khiến con không phải hối hận và..."
+
+Phía sau Lara, một hình bóng được tạo nên từ Mana của Mio chậm rãi hiện ra.
+
+Hình bóng ấy nhẹ nhàng quỳ xuống, vòng tay ôm lấy cô bé từ phía sau, rồi thì thầm:
+
+"Mẹ yêu con."
+
+Hoàng hôn dần buông xuống.
+
+Trên hòn đảo hoang vắng từng chất chứa biết bao niềm vui của hai mẹ con, tiếng khóc của Lara vẫn mãi vang vọng giữa tiếng sóng biển.
