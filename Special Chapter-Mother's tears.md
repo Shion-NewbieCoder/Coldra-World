@@ -586,7 +586,7 @@ Và rồi, *Vút*, một thứ gì đó đã xuyên qua cơ thể khổng lồ c
 "Lara" Mio thều thào, ý thức của sinh vật trước khi rời xa trần thế, đã trở lại minh mẫn
 "Mẹ xin lỗi. . ."
 "KHÔNG! KHÔNG ĐƯỢC! Mọi chuyện sẽ ổn thôi mà, mọi chuyện sẽ ổn thôi mà mẹ, vậy nên đừng đi mà, mẹ ơi, MẸ!" Lara vừa khóc vừa cố gắng truyền Mana của mình cho Mio, như cách mà Mio đã từng dậy cô ấy khi cả hai còn sống trên đảo
-"Lara. . ." Mio, mặc dù không thể cử động được nữa, vẫn sử dụng chút năng lực cuối cùng của mình để bao bọc lấy Lara trong một chiếc kén bằng Mana của Mio trước khi dịch chuyển con bé về lại trên đảo
+"Lara. . ." Mio, mặc dù không thể cử động được nữa, vẫn sử dụng chút năng lực cuối cùng của mình, một loại Magic hệ thủy được tạo từ nước biển và nước mắt của chính mình để bao bọc lấy Lara trong một chiếc kén bằng Mana của Mio trước khi dịch chuyển con bé về lại trên đảo
 
 Lara ngồi thẫn thờ trên đảo, nhìn vô tay của mình, rồi lại nhìn vô khoảng không vô địch trước mắt, Lara khóc, rất lớn, nức nở, cô ấy gọi mẹ, trong tiềm thức của Lara vẫn còn tiếng nói của Mio rất rõ
 "Lara, hãy sống sót, hãy trở thành một người tốt, hãy làm những điều khiến con không hối hạn và. . ."
