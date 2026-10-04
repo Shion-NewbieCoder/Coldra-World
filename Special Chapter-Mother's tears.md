@@ -567,7 +567,33 @@ Mio quay qua và nhẹ xoa đầu con gái của mình, cũng như truyền lạ
 "Con gái của mẹ, dù sau này có ra sao, mẹ vẫn sẽ ở bên con"
 Và rồi Mio nằm xuống, ôm lấy Lara khi cả hai chìm vô giấc ngủ
 
+Những tháng ngày sinh tồn ở đảo hoang này vẫn tràn ngập niềm vui, Mio quả thực rất biết cách giữ khí thế và năng lượng cho cả hai mẹ con. Mấy ngày đầu, Lara vẫn vụng về săn cá, câu cá, chế biến, hái lượm cũng rất vụng nhưng Mio chỉ rất nhẹ nhàng và pha trò để khiến hai mẹ con vui
+"Nào, con chỉ cần kiểm soát lực và. . . NÉM!"
+Lara ném trúng một con cá nhỏ
+"YAY! Con làm được rồi đó Lara"
+Lara cười không khép được miệng, mặc dù ở đằng sau hai người, chiếc rổ cá tự thủ công do Mio làm cho cả hai, ngoài của Lara thì Mio đã đầy ắp cá từ khi nào 
+
+"Phải phải, nướng phải chín cả hai mặt thì mới ngon, con học nhanh ghê ha công chúa của mẹ" Mio cười thoải mái và xoa đầu Lara
+"Vị cũng không tệ, thực sự trước khi mẹ làm hoàng hậu là mẹ ăn mấy món như này sao, có cả những kinh nghiệm và phiêu lưu nữa"
+Mio gật đầu 
+"Phải, con thấy sao khi có một người mẹ không ra dáng hoàng tộc?"
+Lara cười lớn và dụi đầu vô lòng mẹ
+"Con thấy mẹ ngầu lắm, rất là tuyệt luôn"
+Mio xoa đầu của Lara, nhưng mặt của cô ấy hơi nhăn lại, phần bụng của Mio hơi nhói lên
+"Hôm nay chúng ta nên đi nghỉ sớm ha"
+"Ể? Vẫn còn sớm mà mẹ"
+Mio cười thoải mái
+"Ngủ sớm thì mới cao lớn như mẹ được, vậy nhá, cùng đi ngủ thôi nào"
+"Dạaaaaa" Lara ngáp nhẹ trước khi cả hai mẹ con ôm nhau ngủ
+
 Thoáng đã trôi qua 7 tháng, những biến đổi ở phía Mio đã hiện rất rõ, cô ấy cũng dần mất khả năng nhận thức nhưng bản năng làm mẹ vẫn còn, cơ thể bị biến đổi đã khiến cô ấy mất đi dáng vẻ của một nữ hoàng mà giờ chỉ là một hình hài quái vật rất lớn. Dẫu vậy, Mio vẫn luôn bảo vệ Lara, vẫn chăm sóc con bé, vẫn xoa đầu và ngủ cạnh. Lara cũng đã phải tự mình bước đi, vận dụng những gì mà mẹ mình dậy để sinh tồn và cũng như tìm cách hóa giải cho mẹ mình. . . Nhưng dường như, mọi thứ rất vô vọng
+"Hôm nay con đã săn được rất nhiều cá, cũng hái được nhiều trái đỏ ngon nữa"
+Bàn tay to lớn đầy vuốt nhọn của Mio khẽ đưa lên và xoa đầu của Mio, rất nhẹ
+"Chúng ta sẽ ổn thôi mà, chúng ta có nhau mà, mẹ nhỉ?"
+Mio chỉ gầm gừ nhẹ nhưng vẫn tiếp tục xoa đầu Lara
+"Biến động Mana. . ."
+Lara nhẹ đưa cánh tay của mình lên, bàn tay giờ đã xuất hiện những móng vuốt nhỏ, Lara cũng mọc ra cả phần đuôi nhọn nữa, nhưng Lara vẫn chưa hiểu sao mình không bị biến đổi nặng giống mẹ đến vậy
+"Mọi chuyện. . .Sẽ ổn thôi" Lara dúc vô lòng Mio và ngủ thiếp đi
 
 Nhanh chóng, thời gian đã trôi qua tròn 1 năm, vẫn chưa có dấu hiệu gì của mọi người đến cứu lấy hai mẹ con, cơ thể của Lara cũng xuất hiện những biến đổi nhỏ, không nhiều nhưng đủ để thấy rằng cô ấy đang dần mất đi hình hài của cô ấy trước khi. Lara quyết định rằng, mình phải rời khỏi hòn đảo này, chí ít phải như vậy thì mới có cách chữa được cho cả hai, dù rằng rất nguy hiểm nhưng phải vậy
 
