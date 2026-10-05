@@ -914,6 +914,20 @@ Nước mắt Lara rơi xuống, hòa vào làn nước biển mặn chát.
 
 Cô thật sự ước mình có thể lạc quan như mẹ. Ước rằng chỉ cần cố thêm một chút, hai mẹ con vẫn có thể cùng nhau vượt qua chuyện này, giống như suốt một năm qua.
 
+Mio vẫn đang điên cuồng tàn phá mọi thứ mà cô ấy nghĩ là đang gây hại cho Lara, những đợt phản công từ phía Seawind cũng mãnh liệt, có cả những đòn vô tình trượt về phía Lara nhưng Mio luôn vô thức che chắn cho Lara
+
+"Mẹ. . .Mẹ vẫn tiếp tục bảo vệ con, đáng lẽ nếu không vì con thì. . .Nếu mọi chuyện không phải do con thì"
+
+Tiếng hét, tiếng khóc, tiếng gầm rú, tiếng gió, tiếng sóng, tất cả như hòa lại thành một thứ âm thanh hỗn tạo kinh dị
+
+"Tại sao cơ chứ, cha. . .Kara. . .Mọi người đang ở đâu rồi, mọi người. . ."
+
+Lara nhìn lên, Mio vẫn đang gầm thét, những vết thương liên tục được hồi phục một cách nhanh chóng, Lara cảm nhận được ở chính giữa ngực của mẹ mình, trái tim của Mio vẫn đang tiếp tục đập, nhịp tim ấy, Lara luôn nghe được mỗi khu dúc vào người mẹ mình, vẫn là nhịp tim ấy, Mio vẫn ở đấy nhưng mà. . .
+
+"Mẹ, làm ơn, dừng lại đi, mọi người, làm ơn đi"
+
+"LÀM ƠN ĐI MÀ-"
+
 Nhưng rồi—
 
 *Vút!*
