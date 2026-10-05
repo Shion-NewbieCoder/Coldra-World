@@ -673,6 +673,24 @@ Mio nhanh chóng lấy lại nụ cười thường ngày.
 Lara kéo dài giọng, rồi cũng không kìm được một cái ngáp. Chẳng bao lâu sau, hai mẹ con đã nằm cạnh nhau, ôm lấy nhau trong giấc ngủ.
 
 ---
+"Mẹ con em vẫn ổn, mặc dù cơ thể của em vẫn đang biến đổi mỗi ngày nhưng mà Lara con của chúng ta sẽ bình an thôi, em dám chắc điều đó đấy. Em cũng tìm được một số thứ kì lạ, một trong số đó là cuốn sổ ghi chép này, nó là một cuốn sổ trống nên em lấy tạm để ghi nhật ký, à, em còn tìm thấy một vòng tròn nữa, có vẻ như nó được sử dụng để làm điểm dịch chuyển nhưng đã cũ nên không còn hoạt động nữa chăng? Em cũng thử tái tạo lại nó để đề phòng thôi, em cũng nên nghĩ xa giống anh mà nhỉ Lerion"
+Mio khép lại cuốn sổ của mình lại, một cuốn sổ được làm từ những vật liệu thô sơ mà cô ấy tìm được trên đảo hoang, có vẻ như từng có người cũng sống ở đây như họ
+
+Mio thở dài và nhìn lên bầu trời đầy sao, mặt trăng chiếu rọi
+"Nơi này, đẹp thật đấy, những thứ lấp la lấy lánh, ánh sáng và cả sinh vật thú vị. . .Chỉ là, em ước rằng mình có thể trở về, em nhớ anh, em nhớ nhà, em nhớ mọi người quá"
+Mio nhẹ lấy bàn tay của mình lau đi những giọt nước mắt trực trào rơi, mặc dù những chiếc móng đang dần hình thành rõ hơn nhưng. . .
+"Mình phải bảo vệ con bé, chí ít đấy là điều duy nhất mình có thể làm được"
+Mio quay qua nhìn Lara đang ngủ say bên cạnh rồi đưa tay ra vén tóc con bé qua một bên để nhìn thấy rõ khuôn mặt đấy hơn
+"Mẹ xin lỗi Mio, mẹ không thể dậy cho con lễ nghi, mẹ cũng không đủ tài giỏi về giao tiếp như bố con, mẹ cũng không xuất thân từ gia đình gia giáo, mẹ cũng không thể chỉ dậy con về Magic hay nhiều thứ thú vị hơn" 
+Nhưng giọt nước mắt rơi xuống khuôn mặt của Lara khiến cho cô ấy tỉnh lại
+"Mẹ? Mẹ chưa ngủ sao? Sao mẹ lại khóc vậy?" Mặc dù còn ngái ngủ nhưng Lara cũng đang dần tỉnh lại vì lo lắng
+"À không, mẹ mơ thấy ác mộng thôi ý mà, nên có khóc chút thôi" Mio cười xòa và lau nước mắt trước khi ôm lấy Lara
+"Lara. . .Mẹ yêu con lắm" Mio thì thầm
+"Con cũng yêu mẹ lắm ạ" Lara nhẹ vỗ lưng của Mio
+
+Và rồi, cả hai một lần nữa chìm vô giấc ngủ, những giọt nước mắt của Mio đã khô đi từ lúc nào
+
+---
 
 Bảy tháng trôi qua.
 
