@@ -673,22 +673,155 @@ Mio nhanh chóng lấy lại nụ cười thường ngày.
 Lara kéo dài giọng, rồi cũng không kìm được một cái ngáp. Chẳng bao lâu sau, hai mẹ con đã nằm cạnh nhau, ôm lấy nhau trong giấc ngủ.
 
 ---
-"Mẹ con em vẫn ổn, mặc dù cơ thể của em vẫn đang biến đổi mỗi ngày nhưng mà Lara con của chúng ta sẽ bình an thôi, em dám chắc điều đó đấy. Em cũng tìm được một số thứ kì lạ, một trong số đó là cuốn sổ ghi chép này, nó là một cuốn sổ trống nên em lấy tạm để ghi nhật ký, à, em còn tìm thấy một vòng tròn nữa, có vẻ như nó được sử dụng để làm điểm dịch chuyển nhưng đã cũ nên không còn hoạt động nữa chăng? Em cũng thử tái tạo lại nó để đề phòng thôi, em cũng nên nghĩ xa giống anh mà nhỉ Lerion"
-Mio khép lại cuốn sổ của mình lại, một cuốn sổ được làm từ những vật liệu thô sơ mà cô ấy tìm được trên đảo hoang, có vẻ như từng có người cũng sống ở đây như họ
+---
 
-Mio thở dài và nhìn lên bầu trời đầy sao, mặt trăng chiếu rọi
-"Nơi này, đẹp thật đấy, những thứ lấp la lấy lánh, ánh sáng và cả sinh vật thú vị. . .Chỉ là, em ước rằng mình có thể trở về, em nhớ anh, em nhớ nhà, em nhớ mọi người quá"
-Mio nhẹ lấy bàn tay của mình lau đi những giọt nước mắt trực trào rơi, mặc dù những chiếc móng đang dần hình thành rõ hơn nhưng. . .
-"Mình phải bảo vệ con bé, chí ít đấy là điều duy nhất mình có thể làm được"
-Mio quay qua nhìn Lara đang ngủ say bên cạnh rồi đưa tay ra vén tóc con bé qua một bên để nhìn thấy rõ khuôn mặt đấy hơn
-"Mẹ xin lỗi Mio, mẹ không thể dậy cho con lễ nghi, mẹ cũng không đủ tài giỏi về giao tiếp như bố con, mẹ cũng không xuất thân từ gia đình gia giáo, mẹ cũng không thể chỉ dậy con về Magic hay nhiều thứ thú vị hơn" 
-Nhưng giọt nước mắt rơi xuống khuôn mặt của Lara khiến cho cô ấy tỉnh lại
-"Mẹ? Mẹ chưa ngủ sao? Sao mẹ lại khóc vậy?" Mặc dù còn ngái ngủ nhưng Lara cũng đang dần tỉnh lại vì lo lắng
-"À không, mẹ mơ thấy ác mộng thôi ý mà, nên có khóc chút thôi" Mio cười xòa và lau nước mắt trước khi ôm lấy Lara
-"Lara. . .Mẹ yêu con lắm" Mio thì thầm
-"Con cũng yêu mẹ lắm ạ" Lara nhẹ vỗ lưng của Mio
+"Mẹ con em vẫn ổn."
 
-Và rồi, cả hai một lần nữa chìm vô giấc ngủ, những giọt nước mắt của Mio đã khô đi từ lúc nào
+Mio khẽ viết thêm một dòng vào cuốn sổ đặt trên đầu gối.
+
+"Mặc dù cơ thể em vẫn đang biến đổi từng ngày, nhưng Lara... con của chúng ta sẽ bình an thôi. Em dám chắc điều đó."
+
+Đầu bút dừng lại trong chốc lát.
+
+"Em cũng tìm thấy một vài thứ khá kỳ lạ trên hòn đảo này. Một trong số đó là cuốn sổ này. Nó vốn hoàn toàn trống, nên em mượn tạm để làm nhật ký."
+
+Mio khẽ bật cười, rồi tiếp tục viết.
+
+"À, em còn tìm được một vòng tròn nữa. Có vẻ như nó từng được sử dụng làm điểm dịch chuyển, nhưng đã quá cũ nên không còn hoạt động. Em đang thử tái tạo lại nó để đề phòng thôi."
+
+Cô nghiêng đầu, khóe môi cong lên thành một nụ cười nhỏ.
+
+"Em cũng nên học cách nghĩ xa giống anh một chút nhỉ, Lerion?"
+
+Mio khép cuốn sổ lại.
+
+Đó chỉ là một cuốn sổ cũ được cô tìm thấy trên đảo, với phần bìa đã sờn và những trang giấy gần như chưa từng được sử dụng.
+
+Sự tồn tại của nó, cùng những dấu vết khác mà Mio phát hiện được, khiến cô đoán rằng trước hai mẹ con, có lẽ từng có người sinh sống tại nơi này.
+
+Mio ngẩng đầu nhìn lên bầu trời.
+
+Đêm nay trời rất trong.
+
+Ánh trăng dịu dàng phủ xuống hòn đảo, còn vô số điểm sáng nhỏ lấp lánh giữa nền trời tối thẳm.
+
+"Nơi này... đẹp thật đấy."
+
+Cô khẽ thì thầm.
+
+"Những ánh sáng trên trời, những sinh vật kỳ lạ, cả những thứ em chưa từng được nhìn thấy ở quê nhà..."
+
+Nụ cười trên môi Mio dần nhạt đi.
+
+"Chỉ là..."
+
+Cô cúi đầu.
+
+"Em ước gì mình có thể trở về."
+
+Một khoảng lặng kéo dài.
+
+"Em nhớ anh."
+
+"Em nhớ nhà."
+
+"Em nhớ mọi người quá..."
+
+Mio đưa tay lên lau những giọt nước mắt đang trực trào nơi khóe mắt.
+
+Những chiếc móng trên bàn tay cô đã bắt đầu hiện rõ hơn từng ngày.
+
+Cô nhìn chúng một lúc lâu.
+
+"...Nhưng mình phải bảo vệ con bé."
+
+Giọng Mio nhỏ đến mức gần như chỉ còn là tiếng thì thầm.
+
+"Chí ít... đó là điều duy nhất mình có thể làm được."
+
+Cô quay sang.
+
+Lara vẫn đang ngủ say ngay bên cạnh, hoàn toàn không biết mẹ mình vừa khóc.
+
+Mio chậm rãi đưa tay ra, cẩn thận vén những lọn tóc đang phủ trên gương mặt con gái sang một bên.
+
+Cô nhìn Lara thật lâu.
+
+"Lara..."
+
+Mio mỉm cười buồn.
+
+"Mẹ xin lỗi."
+
+"Mẹ không thể dạy con những lễ nghi mà một công chúa nên biết."
+
+"Mẹ cũng chẳng giỏi giao tiếp như cha con."
+
+"Mẹ không sinh ra trong một gia đình gia giáo, cũng chẳng hiểu biết đủ nhiều để có thể dạy con về Magic hay tất cả những điều thú vị ngoài kia."
+
+Giọng cô khẽ run.
+
+"Mẹ chỉ biết có từng này thôi..."
+
+Một giọt nước mắt rơi xuống.
+
+Nó chạm nhẹ vào má Lara.
+
+Cô bé khẽ cựa mình, rồi từ từ mở mắt.
+
+"...Mẹ?"
+
+Lara vẫn còn ngái ngủ, nhưng khi nhận ra gương mặt Mio, cô bé nhanh chóng tỉnh táo hơn.
+
+"Mẹ chưa ngủ sao?"
+
+Lara dụi mắt.
+
+Rồi cô bé nhìn thấy những vệt nước còn sót lại trên má mẹ.
+
+"Sao mẹ lại khóc vậy?"
+
+Mio hơi khựng lại.
+
+Nhưng chỉ một thoáng sau, cô lại nở nụ cười quen thuộc.
+
+"À... không có gì đâu."
+
+Cô nhanh chóng lau nước mắt.
+
+"Mẹ chỉ mơ thấy ác mộng một chút thôi ấy mà."
+
+Lara vẫn nhìn mẹ đầy lo lắng.
+
+Mio không giải thích thêm.
+
+Cô chỉ cúi xuống, nhẹ nhàng ôm lấy con gái.
+
+"Lara..."
+
+"...Dạ?"
+
+"Mẹ yêu con lắm."
+
+Lara im lặng vài giây.
+
+Rồi đôi tay nhỏ của cô bé cũng vòng qua lưng Mio, nhẹ nhàng vỗ về mẹ như cách Mio vẫn thường làm với mình.
+
+"Con cũng yêu mẹ lắm ạ."
+
+Mio khẽ siết vòng tay lại.
+
+Một lúc sau, hai mẹ con lại nằm xuống cạnh nhau.
+
+Lara nhanh chóng chìm vào giấc ngủ.
+
+Mio vẫn thức thêm một chút, lặng lẽ nhìn gương mặt con gái trong vòng tay mình.
+
+Nhưng lần này, không còn giọt nước mắt nào rơi xuống nữa.
+
+Rồi Mio cũng từ từ khép mắt.
+
+Hai mẹ con một lần nữa chìm vào giấc ngủ giữa tiếng sóng biển vọng lại từ phía xa.
 
 ---
 
