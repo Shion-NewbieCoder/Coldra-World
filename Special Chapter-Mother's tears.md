@@ -673,7 +673,6 @@ Mio nhanh chóng lấy lại nụ cười thường ngày.
 Lara kéo dài giọng, rồi cũng không kìm được một cái ngáp. Chẳng bao lâu sau, hai mẹ con đã nằm cạnh nhau, ôm lấy nhau trong giấc ngủ.
 
 ---
----
 
 "Mẹ con em vẫn ổn."
 
