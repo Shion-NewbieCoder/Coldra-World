@@ -914,19 +914,99 @@ Nước mắt Lara rơi xuống, hòa vào làn nước biển mặn chát.
 
 Cô thật sự ước mình có thể lạc quan như mẹ. Ước rằng chỉ cần cố thêm một chút, hai mẹ con vẫn có thể cùng nhau vượt qua chuyện này, giống như suốt một năm qua.
 
-Mio vẫn đang điên cuồng tàn phá mọi thứ mà cô ấy nghĩ là đang gây hại cho Lara, những đợt phản công từ phía Seawind cũng mãnh liệt, có cả những đòn vô tình trượt về phía Lara nhưng Mio luôn vô thức che chắn cho Lara
+Mio vẫn đang điên cuồng tàn phá mọi thứ mà bà cho rằng có thể gây nguy hiểm cho Lara.
 
-"Mẹ. . .Mẹ vẫn tiếp tục bảo vệ con, đáng lẽ nếu không vì con thì. . .Nếu mọi chuyện không phải do con thì"
+Những đợt phản công từ phía Seawind cũng ngày một dữ dội hơn. Magic, vũ khí và vô số đòn tấn công liên tục trút xuống cơ thể khổng lồ của Mio.
 
-Tiếng hét, tiếng khóc, tiếng gầm rú, tiếng gió, tiếng sóng, tất cả như hòa lại thành một thứ âm thanh hỗn tạo kinh dị
+Đôi khi, một vài đòn đánh lệch khỏi mục tiêu, vô tình lao về phía Lara.
 
-"Tại sao cơ chứ, cha. . .Kara. . .Mọi người đang ở đâu rồi, mọi người. . ."
+Nhưng lần nào cũng vậy.
 
-Lara nhìn lên, Mio vẫn đang gầm thét, những vết thương liên tục được hồi phục một cách nhanh chóng, Lara cảm nhận được ở chính giữa ngực của mẹ mình, trái tim của Mio vẫn đang tiếp tục đập, nhịp tim ấy, Lara luôn nghe được mỗi khu dúc vào người mẹ mình, vẫn là nhịp tim ấy, Mio vẫn ở đấy nhưng mà. . .
+Mio lập tức chắn trước mặt con gái.
 
-"Mẹ, làm ơn, dừng lại đi, mọi người, làm ơn đi"
+Dù ý thức đã chẳng còn được như trước, cơ thể bà vẫn vô thức lựa chọn bảo vệ Lara trước tiên.
 
-"LÀM ƠN ĐI MÀ-"
+"Mẹ..."
+
+Lara nhìn người mẹ đang che chắn cho mình, giọng run lên.
+
+"Mẹ vẫn tiếp tục bảo vệ con..."
+
+Hai bàn tay cô bé siết chặt.
+
+"Đáng lẽ... nếu không phải vì con..."
+
+"Nếu mọi chuyện không phải do con thì..."
+
+Tiếng hét.
+
+Tiếng khóc.
+
+Tiếng gầm rú của Mio.
+
+Tiếng Magic va chạm, tiếng gió rít và những con sóng dữ dội đập vào bờ.
+
+Tất cả hòa lẫn vào nhau, tạo thành một thứ âm thanh hỗn loạn đến mức Lara gần như không còn phân biệt được bất cứ điều gì.
+
+"Tại sao cơ chứ..."
+
+Cô bé cúi đầu, nước mắt không ngừng rơi.
+
+"Cha..."
+
+"Kara..."
+
+"Mọi người đang ở đâu rồi...?"
+
+"Mọi người..."
+
+Lara lại ngẩng lên.
+
+Mio vẫn đang gầm thét giữa chiến trường.
+
+Những vết thương liên tục xuất hiện trên cơ thể khổng lồ ấy, rồi nhanh chóng khép lại dưới dòng Mana đang cuộn trào bên trong.
+
+Và giữa tất cả sự hỗn loạn đó—
+
+Lara vẫn cảm nhận được một thứ.
+
+Ở sâu bên trong lồng ngực Mio.
+
+*Thình.*
+
+*Thịch.*
+
+Trái tim của mẹ cô vẫn đang đập.
+
+Lara biết nhịp tim ấy.
+
+Ngày trước, mỗi khi cô rúc vào lòng mẹ, áp tai lên ngực Mio rồi chìm vào giấc ngủ, cô vẫn luôn nghe thấy chính âm thanh này.
+
+Vẫn là nhịp tim ấy.
+
+Vẫn là người mẹ ấy.
+
+Mio vẫn đang ở đó.
+
+Nhưng mà...
+
+"Mẹ..."
+
+Lara bật khóc.
+
+"Làm ơn... dừng lại đi."
+
+Cô nhìn về phía những người đang chiến đấu ở Seawind.
+
+"Xin mọi người..."
+
+"Làm ơn dừng lại đi..."
+
+Không ai nghe được cô.
+
+Hoặc có lẽ, giữa chiến trường hỗn loạn này, chẳng còn ai có thể nghe được nữa.
+
+"LÀM ƠN ĐI MÀ—"
 
 Nhưng rồi—
 
