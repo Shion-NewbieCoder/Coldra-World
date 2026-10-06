@@ -867,26 +867,36 @@ Phần lớn thi thể Thủy Quái bị tiêu hủy do Mana bất ổn và nguy
 
 Một số vật thể phi sinh học vẫn được thu hồi.
 
-Đáng chú ý nhất là một cấu trúc kim loại khổng lồ có hình dạng gần giống vương miện.
+Đáng chú ý nhất là một cuốn sổ nhỏ được tìm thấy vẫn được giữ sát bên cơ thể Thủy Quái.
 
-Vật thể rộng gần nửa mét và được tạo từ một loại vật liệu cực kỳ nặng, bền.
+Phần bìa đã hư hại sau thời gian dài ngoài biển và trận chiến, nhưng phần lớn các trang bên trong vẫn còn đủ nguyên vẹn để nghiên cứu.
+
+Nhiều trang đã được viết kín bằng một hệ ký tự hoàn toàn xa lạ.
+
+Guild xác nhận các ký tự có quy luật lặp, cách phân đoạn và cấu trúc đủ rõ để cho thấy đây rất có thể là một dạng ngôn ngữ hoàn chỉnh, không phải hoa văn hay ký hiệu ngẫu nhiên.
+
+Tuy nhiên, hệ chữ này không trùng khớp với bất kỳ ngôn ngữ nào được lưu trữ trong kho dữ liệu của Guild.
+
+Không ai có thể đọc được nội dung.
+
+Một chi tiết khiến các nhà nghiên cứu đặc biệt chú ý là tình trạng của cuốn sổ cho thấy Thủy Quái dường như đã mang nó bên mình trong một khoảng thời gian rất dài, kể cả sau khi cơ thể đã biến đổi nghiêm trọng.
 
 Guild không xác định được:
 
-- Nguồn gốc.
+- Cuốn sổ có nguồn gốc từ đâu.
     
-- Chức năng.
+- Hệ chữ bên trong thuộc về chủng loài hoặc nền văn minh nào.
     
-- Liệu nó có từng được sử dụng như trang sức hay không.
+- Nội dung thực sự được ghi lại trong đó.
     
-- Vì sao nó lại xuất hiện cùng Thủy Quái.
+- Vì sao một Rift Creature lại mang theo một vật thể có dấu hiệu rõ ràng của việc ghi chép bằng ngôn ngữ.
     
 
-Sau khi không thu được kết quả nghiên cứu rõ ràng, vật thể được chuyển về Seawind.
+Do khả năng chứa thông tin liên quan tới nguồn gốc của Thủy Quái và Rift, cuốn sổ không được đưa ra trưng bày công khai.
 
-Nó được cố định trên một bệ đá tại khu tưởng niệm.
+Nó được niêm phong và chuyển vào kho nghiên cứu của Guild để tiếp tục bảo quản, sao chép và giải mã.
 
-Trong nhiều năm, người dân chỉ xem đó là một di vật kỳ lạ lấy từ con quái vật.
+Trong nhiều năm sau Sự kiện Seawind, không có bản dịch hoàn chỉnh nào được tạo ra.
 
 ---
 
@@ -921,7 +931,7 @@ Những câu hỏi sau chưa từng có lời giải thích thỏa đáng trong 
 
 - Vì sao Thủy Quái luôn bảo vệ cá thể Rift nhỏ hơn?
     
-- Vì sao nó mang theo vật thể giống vương miện?
+- Vì sao một Rift Creature lại mang theo một cuốn sổ được viết bằng một hệ ngôn ngữ hoàn chỉnh mà Guild chưa từng biết tới?
     
 - Cá thể Rift nhỏ hơn đã đi đâu sau trận chiến?
     
@@ -946,13 +956,21 @@ Seawind về sau tổ chức ngày tưởng niệm thường niên dành cho nh�
 
 Tên của những người đã mất được khắc tại khu tưởng niệm.
 
-Một số vật thể thu hồi được đặt gần đó.
+Một số vật thể thu hồi được đặt gần khu tưởng niệm.
 
-Trong số ấy có chiếc vương miện kim loại khổng lồ.
+Riêng cuốn sổ được tìm thấy bên Thủy Quái không được trưng bày.
 
-Đối với người dân Seawind, nó chỉ là một di vật của con quái vật từng suýt phá hủy quê hương họ.
+Guild tiếp tục lưu giữ nó như một tài liệu nghiên cứu đặc biệt do toàn bộ nội dung bên trong được viết bằng một hệ ngôn ngữ chưa thể giải mã.
 
-Đối với Guild, nó vẫn là một vật thể chưa có lời giải.
+Đối với phần lớn người dân Seawind, cuốn sổ chỉ là một vật chứng ít được biết tới của thảm họa năm ấy.
+
+Đối với Guild, nó là một trong những manh mối khó hiểu nhất còn sót lại từ Sự kiện Thủy Quái Seawind.
+
+Trong nhiều năm, cuốn sổ vẫn nằm im trong kho lưu trữ.
+
+Những trang giấy chứa đầy câu chữ.
+
+Chỉ là chưa có ai trong thế giới này biết cách đọc chúng.
 
 Còn với Coldra, ký ức về ngày hôm đó đơn giản hơn nhiều.
 
