@@ -1,4 +1,4 @@
-# Special Chapter — Mother's Tears
+# Special Chapter — Mother's Tears 
 
 Nơi này được gọi là Chaos-Realm.
 
@@ -422,6 +422,28 @@ Năng lực dần tan đi.
 
 Kara đổ gục xuống mặt đất.
 
+---
+
+Trong khi ấy, Lerion vẫn đang xử lý những giấy tờ còn dang dở trong hoàng cung.
+
+Đầu bút trong tay ông bất chợt dừng lại.
+
+Một cảm giác bất an không rõ nguyên nhân chạy dọc sống lưng.
+
+Lerion lập tức đứng bật dậy.
+
+Người hầu đứng bên cạnh giật mình.
+
+"Thưa Đức vua, có chuyện gì v—"
+
+Ông không chờ người kia nói hết.
+
+Không gian quanh Lerion khẽ méo đi.
+
+Chỉ trong một khoảnh khắc, ông biến mất khỏi căn phòng.
+
+---
+
 Lực hút từ vết nứt càng lúc càng mạnh.
 
 Mio cố bám lấy phần rễ cây còn sót lại, nhưng chân cô đã bị thương, độc tố lại đang khiến cơ thể mất dần cảm giác.
@@ -434,6 +456,137 @@ Mio không nói thêm gì nữa.
 
 Cô chỉ dùng chút sức lực còn lại để ôm lấy Lara, giữ đầu con bé áp sát vào ngực mình.
 
+Ngay lúc ấy—
+
+Không gian bên cạnh cô đột ngột dao động.
+
+"MIO!"
+
+Một bóng người xuất hiện giữa những luồng gió dữ dội.
+
+Mio lập tức ngẩng lên.
+
+"...Lerion?"
+
+Lerion lao tới, một tay ôm lấy Mio, tay còn lại giữ chặt cả Lara trong vòng tay cô.
+
+"Giữ chặt anh!"
+
+Mana quanh cơ thể ông bùng lên.
+
+Không gian lập tức vặn xoắn.
+
+Nhưng rồi—
+
+*Rắc!*
+
+Điểm dịch chuyển vừa hình thành lập tức tan vỡ.
+
+Lerion khựng lại.
+
+Ông thử lần nữa.
+
+Mana tiếp tục hội tụ, cố khóa lấy một tọa độ bên ngoài khu rừng.
+
+Thế nhưng, không gian quanh vết nứt đã trở nên quá hỗn loạn.
+
+Mỗi lần Lerion cố thiết lập một điểm neo, lực hút từ Rift lại bóp méo nó trước khi quá trình dịch chuyển hoàn tất.
+
+"...Chết tiệt."
+
+Ông nghiến răng.
+
+Không còn thời gian để thử thêm nữa.
+
+Lerion siết chặt hai mẹ con trong tay, chống chân xuống mặt đất rồi dùng toàn bộ sức mạnh thể chất kéo họ ra khỏi vùng hút.
+
+Mặt đất dưới chân ông nứt vỡ.
+
+Từng rễ cây bật tung khỏi đất.
+
+Nhưng vết nứt vẫn tiếp tục mở rộng.
+
+"Lerion..."
+
+Mio nhìn chồng.
+
+Cô nhanh chóng hiểu ông đang định làm gì.
+
+Nếu không thể đưa hai mẹ con ra ngoài—
+
+thì Lerion sẽ tiếp tục giữ lấy họ.
+
+Cho đến khi chính ông cũng bị kéo vào Rift.
+
+"Anh định..."
+
+Mio khẽ thì thầm.
+
+Lerion không trả lời.
+
+Ông chỉ siết tay chặt hơn.
+
+"Anh sẽ không buông."
+
+Một giọt nước mắt lăn xuống gò má Mio.
+
+"Không được."
+
+Lerion nhìn cô.
+
+"Em nói gì?"
+
+"Anh vẫn còn người dân của mình."
+
+Giọng Mio run lên.
+
+"Anh vẫn còn Wavery."
+
+"Mio, bây giờ không phải lúc để—"
+
+"Anh không thể đi cùng mẹ con em."
+
+"Mio!"
+
+Lerion cố kéo cô lại gần hơn.
+
+Nhưng Mio chỉ nhìn chồng, đôi mắt đã nhòe đi vì nước mắt.
+
+"Em xin lỗi."
+
+Giọt nước mắt vừa rơi khỏi gương mặt cô bất chợt phát sáng.
+
+Một lượng Mana nhỏ bé hội tụ bên trong nó.
+
+"Lerion..."
+
+Mio mỉm cười.
+
+"Hãy bảo vệ mọi người thay em nhé."
+
+"MIO—!"
+
+Giọt nước mắt vỡ tung.
+
+Một luồng lực bất ngờ đẩy mạnh vào ngực Lerion.
+
+Bàn tay ông tuột khỏi Mio.
+
+"KHÔNG!"
+
+Cơ thể Lerion bị hất khỏi vùng hút ngay trước khi vết nứt mở rộng lần cuối.
+
+Ông lập tức chống tay xuống đất, cố lao trở lại.
+
+Nhưng đã quá muộn.
+
+Mio chỉ còn kịp ôm Lara chặt hơn vào lòng.
+
+Rồi cả hai bị vết nứt nuốt chửng.
+
+Không gian khép lại.
+
+Khoảng rừng vừa xảy ra biến cố chỉ còn là một vùng đất trơ trụi, tan hoang.
 Rồi cả hai bị vết nứt nuốt chửng.
 
 Không gian khép lại.
@@ -444,7 +597,7 @@ Khoảng rừng vừa xảy ra biến cố chỉ còn là một vùng đất tr�
 
 Quân tiếp viện cuối cùng cũng tới nơi.
 
-Lerion xuất hiện cùng các cận vệ, nhanh chóng phát hiện những kẻ mặc áo choàng vẫn còn ở khu vực xung quanh.
+Lerion đứng chết chân ở đó một hồi trước khi dịch chuyển áp sát những tên ám sát.
 
 Ông không cho chúng thêm bất kỳ cơ hội nào để tiếp tục tấn công.
 
@@ -462,9 +615,7 @@ Lerion khựng lại.
 
 Bàn tay nhà vua siết chặt đến mức máu bắt đầu rỉ ra.
 
-Nhưng lúc này, điều khiến ông quan tâm nhất không còn là những kẻ vừa tấn công nữa.
-
-"Mio...?"
+"Mio..."
 
 Lerion bước tới vị trí vết nứt vừa biến mất.
 
@@ -472,7 +623,7 @@ Không có gì ở đó.
 
 Chỉ còn một khoảng đất trống bị tàn phá đến mức ngay cả những ngọn cỏ cũng không còn nguyên vẹn.
 
-"...Lara?"
+"...Lara"
 
 Không ai trả lời.
 
