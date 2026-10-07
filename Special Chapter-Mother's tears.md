@@ -589,10 +589,6 @@ Không gian khép lại.
 Khoảng rừng vừa xảy ra biến cố chỉ còn là một vùng đất trơ trụi, tan hoang.
 Rồi cả hai bị vết nứt nuốt chửng.
 
-Không gian khép lại.
-
-Khoảng rừng vừa xảy ra biến cố chỉ còn là một vùng đất trơ trụi, tan hoang.
-
 ---
 
 Quân tiếp viện cuối cùng cũng tới nơi.
@@ -1037,7 +1033,7 @@ Mọi chuyện không diễn ra như Lara hy vọng.
 
 Những sinh vật nơi đây vừa nhìn thấy hình hài khổng lồ của Mio đã lập tức hoảng sợ. Lara cố gắng giải thích, cố nói rằng hai mẹ con chỉ đang tìm kiếm sự giúp đỡ, nhưng những lời cô nói dường như chẳng thể đến được với họ.
 
-Khác biệt giữa các chủng loài đã khiến việc giao tiếp trở thành một trở ngại quá lớn.
+Khác biệt giữa các chủng loài và ngôn ngữ đã khiến việc giao tiếp trở thành một trở ngại quá lớn.
 
 "...Không thể giao tiếp được."
 
@@ -1199,19 +1195,87 @@ Nhưng lần này, dù Lara có cố gắng đến đâu, cô vẫn không thể
 
 "Lara..."
 
-Mio không còn đủ sức để cử động. Dẫu vậy, bà vẫn gom chút năng lực cuối cùng còn sót lại.
+Mio không còn đủ sức để cử động.
 
-Nước biển hòa cùng những giọt nước mắt của chính bà, kết thành một loại Magic hệ Thủy, bao bọc Lara trong chiếc kén được duy trì bằng Mana của Mio.
+Dẫu vậy, bà vẫn gom chút Mana cuối cùng còn sót lại.
 
-Và rồi, bà dịch chuyển con gái trở về hòn đảo nơi hai mẹ con đã từng sinh sống.
+Nước biển hòa cùng những giọt nước mắt trên gương mặt Mio, chậm rãi cuộn quanh Lara thành một lớp kén trong suốt.
+
+Lara vẫn cố bám lấy mẹ.
+
+"Mẹ...?"
+
+Mio nhìn con gái lần cuối.
+
+Rồi lượng Mana bao quanh Lara bất chợt dao động.
+
+Ở một nơi rất xa—
+
+trên hòn đảo nơi hai mẹ con đã sống suốt một năm qua—
+
+vòng tròn dịch chuyển cũ nằm giữa những phiến đá bất ngờ phát sáng.
+
+Những đường nét mà Mio đã kiên trì phục dựng trong nhiều tháng lần lượt sáng lên, nối với nhau thành một vòng hoàn chỉnh.
+
+Cô chưa từng sửa được nó đủ để đưa hai mẹ con trở về Wavery.
+
+Nhưng Mio đã thành công ở một việc khác.
+
+Biến nơi ấy thành một điểm neo.
+
+Một con đường dự phòng chỉ cần hoạt động thêm đúng một lần.
+
+Mana của Mio bắt lấy điểm neo ấy.
+
+Không gian quanh Lara méo đi.
+
+"MẸ!"
+
+Cô bé cố vươn tay.
+
+Nhưng bàn tay nhỏ chỉ kịp lướt qua đầu ngón tay của mẹ.
+
+Rồi Lara biến mất.
 
 ---
 
-Lara ngồi thẫn thờ trên đảo.
+Khi mở mắt lần nữa, Lara đã trở về hòn đảo.
 
-Cô cúi nhìn đôi bàn tay mình, rồi ngước lên khoảng không vô định phía trước.
+Cô nằm ngay giữa vòng tròn dịch chuyển cũ.
 
-Không còn bóng dáng khổng lồ luôn chờ đợi cô trở về sau mỗi lần săn bắt. Không còn bàn tay đầy móng vuốt vẫn cố xoa đầu cô thật nhẹ. Chỉ còn hòn đảo quen thuộc, tiếng sóng và những kỷ niệm của hai mẹ con.
+Ánh sáng trên những ký tự xung quanh vẫn còn lập lòe yếu ớt, rồi từng đường một dần tắt đi.
+
+Lara ngồi thẫn thờ.
+
+Cô nhìn những nét khắc mới nằm chồng lên phần hoa văn đã cũ.
+
+Những dấu vết của việc sửa chữa.
+
+Những phần Mio đã tự tay hoàn thiện trong suốt thời gian hai mẹ con ở đây.
+
+Lúc này, Lara mới hiểu.
+
+"...Mẹ đã sửa được nó..."
+
+Không phải để rời khỏi hòn đảo.
+
+Không phải để trở về Wavery.
+
+Mà để nếu một ngày nào đó mọi chuyện trở nên tồi tệ nhất—
+
+ít nhất vẫn còn một con đường đưa Lara trở lại nơi an toàn.
+
+Cô cúi nhìn đôi bàn tay mình.
+
+Không còn bóng dáng khổng lồ luôn chờ đợi cô trở về sau mỗi lần săn bắt.
+
+Không còn bàn tay đầy móng vuốt vẫn cố xoa đầu cô thật nhẹ.
+
+Chỉ còn hòn đảo quen thuộc.
+
+Tiếng sóng.
+
+Và những ký ức của hai mẹ con.
 
 "...Mẹ?"
 
@@ -1221,18 +1285,50 @@ Không ai đáp lại.
 
 "Mẹ ơi..."
 
-Rồi cô bật khóc, tiếng nức nở lớn dần giữa khoảng không vắng lặng.
+Rồi cô bật khóc.
+
+Tiếng nức nở lớn dần giữa khoảng không vắng lặng.
 
 Trong tâm trí Lara, giọng nói của Mio vẫn còn rõ ràng, như thể mẹ đang ngồi ngay cạnh cô.
 
 "Lara, hãy sống sót. Hãy trở thành một người tốt, hãy làm những điều khiến con không phải hối hận và..."
 
-Phía sau Lara, một hình bóng được tạo nên từ Mana của Mio chậm rãi hiện ra.
+Phía sau Lara, lượng Mana cuối cùng còn sót lại của Mio chậm rãi tụ thành một hình bóng quen thuộc.
 
-Hình bóng ấy nhẹ nhàng quỳ xuống, vòng tay ôm lấy cô bé từ phía sau, rồi thì thầm:
+Hình bóng ấy nhẹ nhàng quỳ xuống.
+
+Vòng tay ôm lấy cô bé từ phía sau.
+
+Rồi thì thầm:
 
 "Mẹ yêu con."
 
-Hoàng hôn dần buông xuống.
+Lara khựng lại.
 
-Trên hòn đảo hoang vắng từng chất chứa biết bao niềm vui của hai mẹ con, tiếng khóc của Lara vẫn mãi vang vọng giữa tiếng sóng biển.
+Đôi môi cô run lên.
+
+"...Con cũng yêu mẹ."
+
+Hình bóng Mio khẽ siết vòng tay thêm một lần cuối.
+
+Rồi từ từ tan thành những hạt sáng nhỏ, hòa vào Mana bên trong Lara.
+
+Hoàng hôn đã tắt từ lúc nào.
+
+Mặt trăng dần lên cao, ánh sáng nhợt nhạt phủ xuống hòn đảo.
+
+Lara vẫn ngồi đó rất lâu.
+
+Cho đến khi tiếng khóc chỉ còn là những nhịp thở đứt quãng.
+
+Cuối cùng, cô bé đưa tay lau nước mắt.
+
+Chậm rãi đứng dậy.
+
+Phía sau Lara, vòng tròn dịch chuyển đã hoàn toàn tối đi.
+
+Không còn một chút Mana nào lưu chuyển bên trong.
+
+Nó đã hoàn thành mục đích cuối cùng mà Mio dành cho nó.
+
+Đưa con gái mình về nhà.
