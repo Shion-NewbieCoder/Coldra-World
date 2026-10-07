@@ -1,5 +1,3 @@
-# Special Chapter — Mother's Tears 
-
 Nơi này được gọi là Chaos-Realm.
 
 Ít nhất, đó là cái tên mà Lara đã được nghe qua những câu chuyện của phụ vương từ khi còn rất nhỏ.
@@ -48,7 +46,7 @@ Hôm nay, đích đến của cô là khu rừng nằm gần rìa khu vực hoà
 
 Thế nhưng, khi Lara vừa chuẩn bị chạy qua một con ngõ...
 
-*Tách!*
+_Tách!_
 
 Một tiếng búng tay vang lên.
 
@@ -176,7 +174,7 @@ Mio lập tức đấm nhẹ vào vai chồng, gương mặt đã đỏ nay lạ
 
 "Thôi được rồi! Anh đi dọn bàn đi. Em sẽ đi tìm Lara về ăn cơm."
 
-Cô vừa định quay người rời đi thì Lerion đã nắm lấy bàn tay mình.
+Cô vừa định quay người rời đi thì Lerion đã nắm lấy tay cô.
 
 "Hửm?"
 
@@ -322,7 +320,7 @@ Chỉ một chút nữa thôi.
 
 Đầu ngón tay của hai mẹ con gần như đã chạm vào nhau.
 
-*Vút!*
+_Vút!_
 
 Một mũi tên bất ngờ lao tới, cắm thẳng vào bắp chân Mio.
 
@@ -352,13 +350,13 @@ Thế nhưng, ngay khi cô vừa tập trung đối phó với hai kẻ cầm cu
 
 Hắn lao thẳng về phía Mio.
 
-"NỮ HOÀNG!"
+"HOÀNG HẬU!"
 
 Kara vội đưa tay ra, dùng năng lực chặn đứng bước tiến của kẻ vừa xuất hiện.
 
 Nhưng chính khoảnh khắc ấy đã khiến cô để lộ sơ hở.
 
-*Phập!*
+_Phập!_
 
 Một mũi tên xuyên vào vùng bụng Kara.
 
@@ -398,7 +396,7 @@ Mio cố nở một nụ cười, vòng tay càng ôm chặt con gái hơn.
 
 "Có mẹ ở đây rồi. Mọi chuyện sẽ ổn thôi, con yêu..."
 
-*Vút!*
+_Vút!_
 
 Một mũi tên khác xuyên vào vai cô.
 
@@ -478,7 +476,7 @@ Không gian lập tức vặn xoắn.
 
 Nhưng rồi—
 
-*Rắc!*
+_Rắc!_
 
 Điểm dịch chuyển vừa hình thành lập tức tan vỡ.
 
@@ -586,14 +584,47 @@ Rồi cả hai bị vết nứt nuốt chửng.
 
 Không gian khép lại.
 
-Khoảng rừng vừa xảy ra biến cố chỉ còn là một vùng đất trơ trụi, tan hoang.
-Rồi cả hai bị vết nứt nuốt chửng.
+"MIO! LARA!"
+
+Lerion lập tức lao về phía nơi Rift vừa biến mất, cánh tay vẫn cố vươn tới khoảng không trước mặt.
+
+Mana quanh cơ thể ông dao động dữ dội.
+
+Ông cố ép không gian mở ra lần nữa.
+
+Một lần.
+
+Rồi thêm một lần nữa.
+
+Nhưng không còn điểm đến nào để khóa lấy.
+
+Lerion không biết Rift đã đưa Mio và Lara tới đâu. Không có tọa độ, không có dấu vết, cũng chẳng còn bất kỳ thứ gì để năng lực của ông bám vào.
+
+Đầu ngón tay ông chỉ chạm phải khoảng không lạnh ngắt.
+
+Lerion đứng chết lặng.
+
+Chưa bao giờ ông cảm thấy mình bất lực đến nhường này.
+
+Rồi, từ một nơi rất sâu trong ký ức, một giọng nói cùng hình bóng mơ hồ của quá khứ chợt hiện lên.
+
+"Một vị vua, đến việc bảo vệ gia đình của mình còn không làm được, thì mày còn làm được gì nữa hả, Lerion...?"
+
+Bàn tay Lerion siết chặt.
+
+Mana trong cơ thể ông vẫn chưa hoàn toàn ổn định sau khi tiếp xúc quá gần với Rift, nhưng chỉ riêng áp lực vô thức tràn ra cũng đã khiến mặt đất dưới chân bắt đầu rạn nứt.
 
 ---
 
 Quân tiếp viện cuối cùng cũng tới nơi.
 
-Lerion đứng chết chân ở đó một hồi trước khi dịch chuyển áp sát những tên ám sát.
+Lerion vẫn đứng bất động thêm vài nhịp thở.
+
+Rồi ánh mắt ông chậm rãi quét qua những kẻ ám sát còn lại.
+
+Không gian quanh nhà vua khẽ méo đi.
+
+Chỉ trong chớp mắt, Lerion đã xuất hiện ngay trước mặt chúng.
 
 Ông không cho chúng thêm bất kỳ cơ hội nào để tiếp tục tấn công.
 
@@ -610,6 +641,10 @@ Lerion khựng lại.
 "...Cường quốc Ritton..."
 
 Bàn tay nhà vua siết chặt đến mức máu bắt đầu rỉ ra.
+
+Hàm răng ông nghiến lại.
+
+Gương mặt hiền hòa khi còn đứng bên Mio trong căn bếp đã hoàn toàn biến mất. Lúc này, thứ còn lại chỉ là một cơn giận dữ lạnh lẽo đến đáng sợ.
 
 "Mio..."
 
@@ -677,7 +712,7 @@ Lara khẽ mở mắt.
 
 "...Mẹ?"
 
-Tầm nhìn còn mờ đục của cô bé dần rõ hơn. Ngay phía trên là gương mặt quen thuộc của Mio. Hóa ra, từ lúc nào Lara đã được mẹ đặt nằm gối đầu lên đùi mình.
+Tầm nhìn còn mờ đục của cô bé dần rõ hơn. Ngay phía trên là gương mặt quen thuộc của Mio. Từ lúc nào không hay, Lara đã được mẹ đặt nằm gối đầu lên đùi mình.
 
 "Con tỉnh rồi sao? Ngủ ngon chứ?"
 
@@ -717,7 +752,7 @@ Lara ngẩng đầu, cố nở một nụ cười.
 
 Mio chống tay đứng lên.
 
-*Cộc!*
+_Cộc!_
 
 "Á!"
 
@@ -769,7 +804,7 @@ Những ngày đầu, Lara vụng về trong gần như mọi việc. Từ săn 
 
 Lara dồn sức phóng chiếc lao tự chế về phía mặt nước.
 
-*Ùm!*
+_Ùm!_
 
 Một con cá nhỏ bị bắt trúng.
 
@@ -1095,6 +1130,22 @@ Tiếng Magic va chạm, tiếng gió rít và những con sóng dữ dội đ�
 
 Tất cả hòa lẫn vào nhau, tạo thành một thứ âm thanh hỗn loạn đến mức Lara gần như không còn phân biệt được bất cứ điều gì.
 
+Giữa mớ âm thanh hỗn loạn ấy, Lara vẫn nghe thấy tiếng hét của những sinh vật nhỏ bé phía bờ biển.
+
+Họ đang cố gắng bảo vệ nơi mình sinh sống.
+
+Mio gầm thét đáp lại.
+
+Lara không hiểu ngôn ngữ của họ. Mio càng không.
+
+Nhưng tiếng khóc thì chẳng cần ngôn ngữ để nhận ra.
+
+Có những cơ thể nhỏ bé bị các đợt va chạm hất tung đi.
+
+Dẫu vậy, họ vẫn gượng dậy.
+
+Vẫn tiếp tục chiến đấu.
+
 "Tại sao cơ chứ..."
 
 Cô bé cúi đầu, nước mắt không ngừng rơi.
@@ -1119,9 +1170,9 @@ Lara vẫn cảm nhận được một thứ.
 
 Ở sâu bên trong lồng ngực Mio.
 
-*Thình.*
+_Thình._
 
-*Thịch.*
+_Thịch._
 
 Trái tim của mẹ cô vẫn đang đập.
 
@@ -1157,7 +1208,7 @@ Hoặc có lẽ, giữa chiến trường hỗn loạn này, chẳng còn ai có
 
 Nhưng rồi—
 
-*Vút!*
+_Vút!_
 
 Một thứ gì đó bất ngờ xuyên thẳng vào cơ thể khổng lồ của Mio.
 
@@ -1261,7 +1312,7 @@ Không phải để rời khỏi hòn đảo.
 
 Không phải để trở về Wavery.
 
-Mà để nếu một ngày nào đó mọi chuyện trở nên tồi tệ nhất—
+Mà để rồi, nếu một ngày nào đó mọi chuyện trở nên tồi tệ nhất—
 
 ít nhất vẫn còn một con đường đưa Lara trở lại nơi an toàn.
 
