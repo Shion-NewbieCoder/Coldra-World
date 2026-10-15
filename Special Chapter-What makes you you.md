@@ -304,10 +304,12 @@ Mio mếu máo
 Người anh trai xoa đầu Mio
 "Rồi rồi, đừng lo, có anh đây rồi"
 Đột nhiên có tiếng sột soạt ở ngay phía bên phải của hai anh em, nó khiến Mio giật bắn mình và lập tức ôm chặt lấy anh trai mình
-Người anh trai cau mày nhẹ khi nhìn về phía phát ra tiếng động
+Người anh trai cau mày nhẹ khi nhìn về phía phát ra tiếng động, ngón tay của người anh trai khẽ giật nhẹ và điều này càng khiến anh ấy cau mày chặt hơn
 "Mày là ai?"
 Từ phía bụi rậm, từ từ bước ra một bóng người cầm một chiếc kiếm có vẻ mới
 "Lại là mày?"
+Người bí ẩn gật đầu nhẹ 
+Ánh mắt của người anh trai nhìn thoáng qua chiếc kiếm trước khi dừng lại ở khuôn mặt của người bí ẩn
 "Hmm..Cũng may là không phải sinh vật nào nguy hiểm"
 Người anh trai vẫn chưa thả lỏng chân mày
 "Mày theo dõi bọn tao à?"
@@ -317,7 +319,7 @@ Người bí ẩn cười nhẹ
 "Vậy thì cút"
 Người bí ẩn gật đầu
 "Tôi cũng định vậy"
-Người bí ẩn cũng rời đi sau đó, theo một hướng khác
+Người bí ẩn, hay gọi là Lerion chỉ nhẹ đưa kiếm lại trong vỏ trước khi rời đi sau đó, theo một hướng khác
 "Phù may quá, không phải Sou, cơ mà sao anh biết hay vậy?"
 "Anh là anh trai của em mà, với lại, tên đó nguy hiểm đấy"
 Người anh trai cuối cùng cũng giãn chân mày ra
