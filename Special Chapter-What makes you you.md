@@ -179,9 +179,76 @@ Mio há hốc mồm nhìn anh trai nhìn
 Mio cười nhẹ
 Người anh trai nhìn qua phía Mio trước khi đưa tay qua và xoa đầu cô ấy
 "Vậy chúng ta đi thôi Mio"
-"Dạ! Tìm nơi ở qua đêm nay thôi! À mà, cái người vừa nãy-"
+"Dạ! Tìm phòng trống để ở qua đêm nay thôi! À mà, cái người vừa nãy-"
 Khi Mio quay qua tìm thì phía đối diện đã trống ghế từ khi nào, chỉ còn lại phần đã ăn hết của người đó
 "Ủa, nhanh vậy, đúng là ma mà"
 "Ừm, chắc vậy, đi thôi Mio"
+Một hồi sau anh Mio phải đứng nhìn anh trai mình mặc cả với bà chủ 
+"Đúng là anh trai của mình thật, mẹ chắc sẽ tự hào lắm đây"
+Mio mỉm cười nhẹ khi nhìn bóng lưng của người anh trai mình, có phần gầy gò nhưng lại rất vững 
+
+Sau một hồi, cả hai lên trên lầu và cuối cùng cũng được nghỉ ở một nơi cũng tạm ổn
+"Vẫn hơi lỗ, chí ít cũng còn đủ để hoàn thành chuyến đi"
+Mio nằm phịch xuống giường và lăn qua lăn lại
+"Mềm và đàn hồi ghê, đúng là đỡ hơn ngoài trời mà, nhưng mà cũng hơi bí quá"
+Người anh trai đặt chiếc túi hành lý của cả hai ở trên chiếc bàn cạnh giường trước khi ngồi nghỉ ở chiếc ghế gần đó
+"Căn phòng này cũng không tệ, anh sẽ ngủ dưới đất cho"
+"KHÔNG ĐƯỢC!"
+"Phải được"
+"KHÔNG!"
+Mio ngồi dậy trên giường và nhìn anh trai mình
+"Anh biết là em có ý tốt nhưng mà anh không muốn bị em đá bay khỏi giường khi ngủ mớ đâu..."
+"À nhỉ, hihi"
+Mio gãi đầu
+"Vậy, chí ít để em đưa anh phần chăn rải xuống sàn cho nó đỡ hơn nhá"
+Người anh trai gật đầu
+"Cũng được, mau nghỉ sớm thôi, chúng ta vẫn còn một quãng đường dài đó Mio"
+"Dạaaa!"
+
+Người anh trai mở cửa sổ nhỏ để thoáng khi, khi màn đêm chìm xuống, phía dưới lầu cũng trở nên yên tĩnh, chỉ còn lại tiếng gió nhẹ qua cửa sổ
+"Anh à...Sau hành trình...Chúng ta sẽ làm gì tiếp vậy?"
+"...Em muốn chúng ta làm gì?"
+Mio cười nhẹ và quay qua nhìn anh trai mình
+"Em muốn chúng ta tìm một ngôi làng nào đó, sống yên bình, em sẽ chăm sóc anh cả đời cũng được, À! Không được, chị dâu cũng sẽ chăm anh nữa, vậy em sẽ để cháu của anh khiến anh vui nhá"
+Mio cười khúc khích
+Người anh trai cũng cười
+"Vậy cũng được, anh thì cũng không mong gì hơn vậy...À không, anh nghĩ anh mong em được hạnh phúc hơn thế, chỉ vậy là đủ rồi, còn anh-"
+"Không được..."
+Không khí bỗng trở nên nặng nề hơn
+"Em muốn anh phải đi cùng em cơ, phải hoàn thành được khát vọng của chính anh, phải..."
+Tiếng nấc nhẹ khi Mio cố ép mặt mình vô gối
+"Mio..."
+Người anh trai nhìn lên trên trần nhà
+"Anh đã dậy em nhiều thứ rồi, nhưng có một thứ là quan trọng nhất và anh muốn em luôn như câu nói đó"
+"Ý anh là?"
+Mio xịt xịt
+Người anh trai ngoảnh qua nhìn Mio và cười nhẹ
+"Mọi chuyện rồi sẽ?"
+Mio cười đáp lại
+"Ổn thôi"
+Cả hai cùng cười
+Người anh trai tiếp tục
+"Dẫu có ra sao"
+Mio đáp lại 
+"Chúng ta sẽ luôn là gia đình"
+Người anh trai ngồi dậy
+"Đừng lo, dù có ra sao, anh vẫn sẽ mãi dõi theo em thôi, và nhớ là hãy kể cho những đứa cháu của anh nghe rằng cậu của chúng nó ngầu ra sao nhá"
+Mio cười khúc khích khi lau nước mắt và gật đầu
+"Ừm...Nhưng mà, em không chắc em sẽ ổn đâu đó"
+"Không sao, anh chưa chết dễ thế đâu, em nghĩ anh trai của em mà nay đây mai đó đùng cái chết được sao?"
+Mio gật đầu
+"Em sẽ luôn trân trọng những khoảnh khắc này"
+Người anh trai cũng gật đầu và nằm xuống
+"Cơ mà...Sao tự dưng anh lại ngồi dậy vậy? Cho ngầu hả?"
+"Không, anh bị đau lưng ấy, nằm sai tư thế"
+Mio cười trước khi cô cũng nhắm mắt lại
+"Đừng ra đi trước em đó nhá"
+"Ừm"
+"Hứa đi"
+"Anh hứa"
+"Ngủ ngon nhé, anh trai"
+"Ngủ ngon, Mio"
+Mio ngoảnh mặt vô góc tường, cô ấy mở mắt và thì thầm
+"Đồ nói dối..."
 
 
