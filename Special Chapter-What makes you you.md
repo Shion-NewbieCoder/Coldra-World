@@ -217,11 +217,9 @@ Người anh trai cũng cười
 Không khí bỗng trở nên nặng nề hơn
 "Em muốn anh phải đi cùng em cơ, phải hoàn thành được khát vọng của chính anh, phải..."
 Tiếng nấc nhẹ khi Mio cố ép mặt mình vô gối
-"Mio..."
+"Mio...Anh có nói anh sẽ không đi cùng đâu con bé ngốc này"
 Người anh trai nhìn lên trên trần nhà
-"Anh đã dậy em nhiều thứ rồi, nhưng có một thứ là quan trọng nhất và anh muốn em luôn như câu nói đó"
-"Ý anh là?"
-Mio xịt xịt
+Mio xụt xịt
 Người anh trai ngoảnh qua nhìn Mio và cười nhẹ
 "Mọi chuyện rồi sẽ?"
 Mio cười đáp lại
@@ -232,9 +230,9 @@ Người anh trai tiếp tục
 Mio đáp lại 
 "Chúng ta sẽ luôn là gia đình"
 Người anh trai ngồi dậy
-"Đừng lo, dù có ra sao, anh vẫn sẽ mãi dõi theo em thôi, và nhớ là hãy kể cho những đứa cháu của anh nghe rằng cậu của chúng nó ngầu ra sao nhá"
+"Đừng lo, dù có ra sao, anh vẫn sẽ mãi dõi theo em thôi, và nhớ là hãy kể cho những đứa cháu của anh nghe rằng cậu của chúng nó ngầu ra sao nhá hoặc là tự chính anh sẽ kể cho, nhân vật chính kể mới thật"
 Mio cười khúc khích khi lau nước mắt và gật đầu
-"Ừm...Nhưng mà, em không chắc em sẽ ổn đâu đó"
+"Vậy, đừng có bỏ cuộc nhé"
 "Không sao, anh chưa chết dễ thế đâu, em nghĩ anh trai của em mà nay đây mai đó đùng cái chết được sao?"
 Mio gật đầu
 "Em sẽ luôn trân trọng những khoảnh khắc này"
@@ -250,5 +248,42 @@ Mio cười trước khi cô cũng nhắm mắt lại
 "Ngủ ngon, Mio"
 Mio ngoảnh mặt vô góc tường, cô ấy mở mắt và thì thầm
 "Đồ nói dối..."
+
+Sáng sớm, khi Mio mới chỉ vừa mở mắt thì đã thấy anh trai của mình dọn hành lý tươm tất trong khi cô ấy còn đang ngái ngủ
+"Ủa ủa, gì nhanh vậy anh trai, mọi người còn chưa dậy hết cơ mà, cho em ngủ thêm đi"
+"Em cứ ngủ đi, anh không hay ngủ sâu thôi"
+Mio gật đầu rồi ngoảnh lại ôm gối ngủ tiếp
+Người anh trai ngồi lại trên chiếc ghế, lấy cuốn nhật ký và bắt đầu ghi tiếp
+"Tương lai, mình muốn có một gia đình nhỏ hạnh phúc, một mái nhà ấm áp, một khu vườn của bản thân, dự đám cưới của Mio, ăn nhiều đồ ngon.."
+Người anh trai khựng lại chút và cười nhạt
+"Đúng là, mình đang mơ mộng hữu huyền ghê, nhưng mà...Đã là anh trai của Mio, mình cũng không nên bỏ cuộc dễ dàng"
+Sau một lúc lâu, Mio cuối cùng cũng chịu tỉnh dậy và cả hai rời khu trọ ấy sau khi đã trả tiền và ăn sáng
+
+"Theo bản đồ thì tiếp chúng ta sẽ đi đâu đây Mio?"
+Mio lấy chiếc bản đồ từ túi của mình và kiểm tra kỹ càng
+"Hmmm...Kế đến là chúng ta sẽ đi qua một khu đại rừng Ruru, sau đó là băng qua sa mạc Mimmi, kế là cường quốc Ritton, sau đó là một đại khu rừng nữa, rồi đến cường quốc Watery, rồi đi tiếp tiếp nữa về phía bắc là sẽ đến Heino Land"
+Người anh trai gật đầu trong khi cả hai vẫn bước tiếp và dần rời khỏi ngôi làng
+"Nghe có vẻ dễ nhưng có lẽ sẽ mất vài tuần đây"
+Mio cất bản đồ lại vô túi và cười thoải mái
+"Chẳng sao, em thích phiêu lưu mà"
+"Vậy sao? Chẳng phải hầu hết trong đại rừng đều có những loài thú săn mồi khổng lồ rình rập sao?"
+Mio cười lớn hơn và khỏe cơ bắp của bản thân, thân hình của Mio đủ lực lưỡng nhưng cũng có nét nữ tính đầy đặn riêng
+"Chả sợ, em cũng bảo vệ bản thân được mà anh trai"
+"Ồ, vậy hả?, anh nghe nói còn có cả loài Sou, loài săn mồi không xương, có cỡ 8-10 chân, đặc biệt rất to, nhanh và trông-"
+"CÓ Á?!" 
+Mio run lẩy bẩy, cơ bắp cũng mềm nhũn ra
+"Ừm, hầu hết đại rừng đều có"
+Mio nhanh rút lại bản đồ ra
+"P-Phải có đường khác, không thể đi vô nơi nguy hiểm độc địa như vầy được, q-quá nguy hiểm!"
+Người anh trai cười nhẹ
+"Có anh mà, lo gì"
+"N-Nhưng mà, nó vẫn rất đáng sợ, quá đáng sợ, quá ghê!"
+"Ồ đến nơi rồi này"
+Mio ngoảnh nhìn phía trước, đập vào mắt cô là lối vào khu rừng rộng lớn, những bóng cây khổng lồ, những tán lá che được cả một khoảng đất rộng lớn, tiếng sột soạt, tiếng kêu của những loài vật tận tít trong đại rừng vàng tận ra ngoài
+"A-Anh trai, hay là chúng ta nghỉ vài ngày rồi đi sau nhỉ?"
+"Không được, nhỡ rồi, đi thôi, với lại...Ai đó nói thích phiêu lưu mà"
+Người anh trai nhếch mép rồi nắm lấy tay của Mio
+"Nào, đi thôi, hahahaha"
+Người anh trai vừa kéo Mio đi vừa cười sảng khoái trong khi Mio chỉ biết kêu trong tuyệt vọng
 
 
