@@ -170,3 +170,18 @@ Người bí ẩn từ từ cởi mù trùm xuống, để lộ mái tóc vàng 
 Người anh trai lập tức trả lời trong khi ăn xuất của mình từ từ, còn về phía Mio thì cô cũng đang mải mê ăn uống rồi
 Người bí ẩn chỉ nở một nụ cười nhẹ trước khi cũng thưởng thức phần ăn của mình
 
+"Ngon quá, em sẽ phải học cách nấu ra món này thôi, à mà món này tên là gì ý nhỉ anh trai?"
+"Manru, kết hợp giữa loại hạt màu nâu tên là Gin khi nấu lên ăn rất ngon, họ chỉ đơn giản rang lên cùng với thịt của một loài động vật ăn cỏ tên Manru vì thịt của chúng rất hợp ăn với Gin"
+"HẢ!? Anh có được lượng kiến thức này từ đâu vậy?" 
+Mio há hốc mồm nhìn anh trai nhìn
+"Anh cũng có học qua từ mẹ của chúng ta"
+"Ooh, vậy nhớ dậy em nhé"
+Mio cười nhẹ
+Người anh trai nhìn qua phía Mio trước khi đưa tay qua và xoa đầu cô ấy
+"Vậy chúng ta đi thôi Mio"
+"Dạ! Tìm nơi ở qua đêm nay thôi! À mà, cái người vừa nãy-"
+Khi Mio quay qua tìm thì phía đối diện đã trống ghế từ khi nào, chỉ còn lại phần đã ăn hết của người đó
+"Ủa, nhanh vậy, đúng là ma mà"
+"Ừm, chắc vậy, đi thôi Mio"
+
+
