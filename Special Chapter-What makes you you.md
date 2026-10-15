@@ -261,7 +261,7 @@ Sau một lúc lâu, Mio cuối cùng cũng chịu tỉnh dậy và cả hai r�
 
 "Theo bản đồ thì tiếp chúng ta sẽ đi đâu đây Mio?"
 Mio lấy chiếc bản đồ từ túi của mình và kiểm tra kỹ càng
-"Hmmm...Kế đến là chúng ta sẽ đi qua một khu đại rừng Ruru, sau đó là băng qua sa mạc Mimmi, kế là cường quốc Ritton, sau đó là một đại khu rừng nữa, rồi đến cường quốc Watery, rồi đi tiếp tiếp nữa về phía bắc là sẽ đến Heino Land"
+"Hmmm...Kế đến là chúng ta sẽ đi qua một khu đại rừng Ruru, sau đó là băng qua sa mạc Mimmi, kế là cường quốc Ritton, sau đó là một đại khu rừng nữa, rồi đến cường quốc Wavery, rồi đi tiếp tiếp nữa về phía bắc là sẽ đến Heino Land"
 Người anh trai gật đầu trong khi cả hai vẫn bước tiếp và dần rời khỏi ngôi làng
 "Nghe có vẻ dễ nhưng có lẽ sẽ mất vài tuần đây"
 Mio cất bản đồ lại vô túi và cười thoải mái
@@ -286,4 +286,61 @@ Người anh trai nhếch mép rồi nắm lấy tay của Mio
 "Nào, đi thôi, hahahaha"
 Người anh trai vừa kéo Mio đi vừa cười sảng khoái trong khi Mio chỉ biết kêu trong tuyệt vọng
 
+"Cơ mà, sao em lại sợ chúng đến vậy nhỉ? Sou ý?"
+"A-Anh không hiểu đâu, chúng vừa nhanh, vừa trông ghê, vừa đầy chân, vừa có quá nhiều mắt để nhìn xung quanh, chúng lại rất yên tĩnh, r-rất to nữa!"
+Người anh trai nhìn sang phía bên trái của mình khi Mio đang bám vô anh như phao cứu sinh
+"Em biết là em vừa lớn hơn anh, khỏe hơn anh chứ? Đến anh còn không sợ nữa là"
+"Ừ rồi rồi! Anh ngầu được chưa!"
+Mio phồng má và ngoảnh đi chỗ khác
+"Ồ, có con Sou ở chỗ dưới bụi kia kìa"
+"Á!KHÔNG!"
+Mio lại bám chặt vô anh trai của mình hơn đến mức người anh còn phải xoa đầu của Mio
+"A-Anh đùa thôi, đ-đừng ôm chặt quá, anh tắt thở mất"
+"ANH TRÊU EM!"
+Người anh trai lại cười một lần nữa
+"À! Anh nhớ rồi, hồi nhỏ, em từng gặp một con Sou nhỏ thì phải, nó từng cắn em và quá nhanh đến mức em không bắt nổi, có phải từ đó sinh ra sợ nó không?"
+"Nếu là giống nhỏ thì em không sợ đâu, chỉ sợ con to thôi, kiểu, khó lý giải lắm ý, nó kiểu bị sợ ý"
+Mio mếu máo
+Người anh trai xoa đầu Mio
+"Rồi rồi, đừng lo, có anh đây rồi"
+Đột nhiên có tiếng sột soạt ở ngay phía bên phải của hai anh em, nó khiến Mio giật bắn mình và lập tức ôm chặt lấy anh trai mình
+Người anh trai cau mày nhẹ khi nhìn về phía phát ra tiếng động
+"Mày là ai?"
+Từ phía bụi rậm, từ từ bước ra một bóng người cầm một chiếc kiếm có vẻ mới
+"Lại là mày?"
+"Hmm..Cũng may là không phải sinh vật nào nguy hiểm"
+Người anh trai vẫn chưa thả lỏng chân mày
+"Mày theo dõi bọn tao à?"
+"Ủa, là cái người ma ở quán trọ"
+Người bí ẩn cười nhẹ
+"Tên tôi là Lerion, tôi không phải ma, và không tôi nghĩ chúng ta chỉ đi cùng tuyến đường thôi"
+"Vậy thì cút"
+Người bí ẩn gật đầu
+"Tôi cũng định vậy"
+Người bí ẩn cũng rời đi sau đó, theo một hướng khác
+"Phù may quá, không phải Sou, cơ mà sao anh biết hay vậy?"
+"Anh là anh trai của em mà, với lại, tên đó nguy hiểm đấy"
+Người anh trai cuối cùng cũng giãn chân mày ra
+"Đi tiếp thôi, đừng lo, có anh đây thì không có con Sou nào làm hại em đâu"
+
+Sau một hồi, hai anh em tìm được một hang động nhỏ để nghỉ chân, trong lúc Mio đang nấu ăn thì người anh trai dựa vô tường đá và cau mày
+"Tên đó, phản xạ nhanh bất thường, một tên nguy hiểm"
+Bản thân người anh trai luôn luôn duy trì một kết giới bằng Mana của bản thân xung quanh anh em họ, chỉ cần có kẻ địch hay bất cứ thứ gì lọt vô đều được người anh trai cảm nhận và sẽ bị dính vô những sợi dây vừa cứng và sắc để bị trói lại nhưng chỉ riêng tên đó hắn đã sử dụng kiếm của bản thân cắt những sợi dây đó cực nhanh và cũng như có khả năng nhìn thấu ra được những sợi đó
+"Quá nguy hiểm, nhưng mà...Lại không có sát ý? Kì lạ, một tên sở hữu sức mạnh như vậy mà ánh mắt không giống bất cứ kẻ nào mình từng gặp, một ánh mắt chính trực nhưng không ngu dốt..."
+"Anh ơi, ăn thôi!"
+"Phải tăng cường đề phòng, nhất là khi hắn vẫn quanh quẩn quanh đại rừng này"
+"Anh ơi!"
+"Phải-"
+"ANH TRAI!"
+Người anh trai giật mình nhẹ và ngoảnh qua phía Mio
+"Sao vậy? Có gì xuất hiện sao?"
+"Phải, có một nồi thức ăn đang xuất hiện và chờ được anh tiêu thụ đấy, mau mau đi ăn đi!"
+Người anh trai gật đầu và đứng dậy trước khi đi theo Mio đến chỗ nồi thức ăn
+"Nãy giờ anh cứ trông ngẩn ngơ sao ý, anh nghĩ đến cái người bí ẩn tên Lerion đó à? Cái cậu ấy trông cũng tầm tuổi em thôi"
+Người anh trai khựng lại
+"Em nhìn ra được sao? Tự dưng em lại chú ý vậy?"
+Người anh trai hơi nheo mắt lại
+"ĐÂU! Em chỉ là học cách anh thôi, em cũng nên biết cách quan sát chớ, anh nghĩ đâu không ý"
+Mio vừa cười vừa ăn
+"Hmmm...Cũng phải, nếu cái thằng gì Leri Leri gì đó dám động tới em gái anh thì biết tay"
 
