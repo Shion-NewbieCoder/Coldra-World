@@ -1,1385 +1,1273 @@
+# Special Chapter — Mother's Tears
+
 Nơi này được gọi là Chaos-Realm.
 
-Ít nhất, đó là cái tên mà Lara đã được nghe qua những câu chuyện của phụ vương từ khi còn rất nhỏ.
+Ít nhất, đó là cái tên Lara vẫn nghe phụ vương nhắc đến từ khi còn rất nhỏ. Đối với cô bé, thế giới ấy không phải những lời giải thích về Mana, những vết nứt không gian hay những cuộc tranh chấp giữa các quốc gia. Nó là Wavery, là những con đường quen thuộc, là cung điện nơi cha mẹ sống cùng mình — và là nơi cô bé có thể chạy nhảy đến mỏi chân mà vẫn còn muốn chơi tiếp.
 
 ---
 
-"Mẹ ơi! Con ra ngoài chơi một lát nhé!"
+“Mẹ ơi! Con ra ngoài chơi một lát nhé!”
 
-Tiếng gọi trong trẻo vang lên giữa căn bếp rộng lớn của hoàng cung.
+Tiếng gọi vang qua căn bếp rộng lớn của hoàng cung.
 
-"Ừm, nhớ cẩn thận đấy, con yêu!"
+“Ừm, nhớ cẩn thận đấy, con yêu!”
 
-Người phụ nữ đứng bên bếp lửa đáp lại mà không quên ngoái đầu nhìn theo bóng dáng con gái đang chạy khuất sau cánh cửa.
+Người phụ nữ đứng cạnh bếp lửa ngoảnh lại. Vừa thấy con gái chuẩn bị chạy đi, cô đặt chiếc muôi xuống, bước tới và giữ Lara lại bằng một bàn tay đặt nhẹ lên vai.
 
-Xung quanh cô, những đầu bếp và người hầu vẫn tất bật với công việc chuẩn bị bữa ăn. Tuy nhiên, điều khiến họ bối rối nhất lại không nằm ở số lượng món ăn cần hoàn thành.
+“Khoan đã nào.”
 
-Mà chính là người phụ nữ đang đứng cạnh họ.
+“Dạ?”
 
-"Thưa Hoàng hậu, xin người hãy để những việc này cho chúng thần!"
+Mio cúi xuống, hôn lên trán Lara rồi vuốt mái tóc hơi rối của cô bé.
 
-Một đầu bếp lớn tuổi gần như van nài khi thấy cô tiếp tục cầm lấy chiếc muôi.
+“Đi chơi thì đi, nhưng nhớ về ăn cơm đấy. Hôm nay mẹ sẽ nấu món con thích.”
 
-"Người không cần phải đích thân xuống bếp đâu ạ. Chẳng lẽ người không tin tưởng tay nghề của chúng thần sao?"
+“Thật ạ?!”
 
-"Không, không phải thế!"
+“Thật. Nếu con về đúng giờ.”
 
-Hoàng hậu bật cười, nhẹ nhàng xua tay.
+“Vậy con nhất định sẽ về!”
 
-"Ta tin mọi người chứ. Chỉ là ta cũng cần vận động một chút thôi. Không thể cứ ngồi yên một chỗ suốt ngày được, nhất là khi ta vẫn còn sung sức thế này!"
+Lara ôm chầm lấy mẹ một cái rồi mới chịu rời đi. Mio nhìn theo bóng cô bé khuất sau cửa, tay vẫn còn giơ lên như muốn vẫy thêm lần nữa.
 
-Người phụ nữ ấy là **Mio**, Hoàng hậu của vương quốc Wavery.
+“Thưa Hoàng hậu, xin người hãy để những việc này cho chúng thần!”
 
-Và có vẻ như, dù đã trở thành Hoàng hậu, cô vẫn chẳng có ý định từ bỏ những sở thích giản dị trước kia của mình.
+Một đầu bếp lớn tuổi gần như van nài khi thấy cô quay lại cầm chiếc muôi.
 
-Những người hầu nhìn nhau, cuối cùng chỉ biết thở dài rồi tiếp tục công việc.
+“Người không cần phải đích thân xuống bếp đâu ạ. Hay người không tin tưởng tay nghề của chúng thần?”
 
-Dẫu sao, đây cũng chẳng phải lần đầu tiên họ được chứng kiến cảnh tượng này.
+“Không, không phải thế!” Mio xua tay. “Ta tin mọi người chứ. Chỉ là ta cũng cần vận động một chút. Không thể cứ ngồi yên cả ngày được, nhất là khi vẫn còn sung sức thế này!”
+
+Người phụ nữ ấy là **Mio**, Hoàng hậu của vương quốc Wavery. Dẫu đã sống trong hoàng cung nhiều năm, cô vẫn thích tự tay nấu ăn, cười lớn khi thấy chuyện buồn cười và đôi khi làm đám người hầu bối rối hơn cả cô công chúa nhỏ.
+
+Họ đã quen với điều đó. Một vài người thở dài rồi quay về việc của mình, nhưng không ai thật sự muốn ngăn cô nữa.
 
 ---
 
-Rời khỏi hoàng cung, Lara nhanh nhẹn chạy dọc con đường quen thuộc.
+Lara chạy dọc con đường lát đá dẫn ra khỏi cung điện, vui vẻ chào những người lính canh và các cư dân quen mặt. Đích đến hôm nay vẫn là khu rừng nằm gần rìa khu vực hoàng cung — nơi cô bé thường lẻn tới dù đã nhiều lần được dặn phải báo người lớn.
 
-Cô bé vui vẻ vẫy tay chào những người lính canh, đáp lại lời hỏi thăm của các cư dân đi ngang qua, đôi chân nhỏ gần như chẳng chịu dừng lại lấy một nhịp.
+Thật ra, người trong cung từng thử cấm.
 
-Hôm nay, đích đến của cô là khu rừng nằm gần rìa khu vực hoàng cung.
+Lara nghe rất ngoan. Rồi chỉ vài hôm sau, cô bé lại tìm được một lối khác để trốn ra ngoài.
 
-Thế nhưng, khi Lara vừa chuẩn bị chạy qua một con ngõ...
+Vì thế, thay vì tiếp tục đuổi theo một nàng công chúa cứ nhìn thấy khoảng trống là muốn khám phá, họ giao việc trông chừng cô bé cho người có thể đưa cả hai về nơi an toàn khi gặp nguy hiểm.
+
+Khi Lara chuẩn bị rẽ qua một con ngõ, một tiếng búng tay vang lên.
 
 _Tách!_
 
-Một tiếng búng tay vang lên.
+“Ể!?”
 
-Cơ thể cô bé bất chợt khựng lại giữa bước chạy.
+Cô bé khựng chân, quay phắt lại.
 
-"Ể!?"
+“Công chúa.”
 
-"Công chúa."
+Từ bóng râm bên bức tường, một cô gái nhỏ tuổi bước ra, vẻ mặt nghiêm túc hơn nhiều so với tuổi của mình.
 
-Một giọng nói quen thuộc cất lên từ phía sau.
+“Người không nên ra ngoài một mình. Ít nhất hãy cho tôi đi cùng.”
 
-"Người không nên ra ngoài một mình như vậy. Ít nhất, xin hãy để tôi đi cùng."
+“Không được, không được! Ngươi còn trăm công nghìn việc mà. Chẳng phải hôm nay ngươi phải luyện tập với cha sao?”
 
-Từ trong con ngõ, một cô gái nhỏ chậm rãi bước ra.
+“Công chúa, tuy tôi mới mười ba tuổi nhưng cũng đã được giao nhiệm vụ bảo vệ người.”
 
-"Không được, không được!"
+“Thì ta có bảo ngươi không làm được đâu!”
 
-Lara lập tức phản đối.
+“Hơn nữa, gần đây Rift xuất hiện ngày càng nhiều ở bên ngoài Wavery. Đức vua đã dựng kết giới để ngăn chúng hình thành bên trong lãnh thổ, nhưng như thế không có nghĩa chúng ta được phép chủ quan.”
 
-"Ngươi còn trăm công nghìn việc phải làm mà! Với cả, chẳng phải hôm nay ngươi phải luyện tập cùng cha mình sao?"
+Lara bĩu môi. Cô đã nghe lời cảnh báo ấy nhiều đến thuộc lòng.
 
-"Công chúa, tuy tôi mới mười ba tuổi nhưng đã đủ khả năng bảo vệ người rồi."
+“Ta chỉ muốn đi chơi một chút thôi mà…”
 
-Cô gái đáp lại, giọng điệu nghiêm túc đến mức chẳng giống một đứa trẻ chút nào.
+“Và tôi chỉ muốn chắc rằng người có thể về nhà ăn tối.”
 
-"Hơn nữa, những vết nứt không gian bên ngoài gần đây xuất hiện ngày càng nhiều. Đức vua đã phải dựng một rào chắn bao quanh Wavery để ngăn chúng xuất hiện bên trong lãnh thổ. Dù vậy, chúng ta vẫn không nên chủ quan."
+Nghe tới bữa tối, Lara do dự vài giây rồi thở dài.
 
-Lara bĩu môi, hai má phồng lên đầy bất mãn.
+“Được rồi! Vậy hôm nay hãy hộ tống ta nhé, **Kara**!”
 
-"Ta chỉ muốn ra ngoài chơi một xíu thôi mà..."
+“Tuân lệnh. Dẫu sao tôi cũng hơn Công chúa **Lara** tận hai tuổi. Hiểu rõ những điều cần thiết thay cho người cũng không có gì lạ.”
 
-Cô bé nhìn người đối diện một lúc, cuối cùng đành thở dài.
+“Ngươi đúng là lắm chuyện!”
 
-"Thôi được rồi! Ngươi cũng có lý. Vậy thì hôm nay hãy hộ tống ta nhé, **Kara**!"
+Lara chộp lấy tay Kara, định kéo đi ngay. Kara nhẹ nhàng giữ cô lại.
 
-Kara khẽ mỉm cười.
+“Chờ một lát.”
 
-"Tuân lệnh. Dẫu sao, tôi cũng hơn Công chúa **Lara** đây tận hai tuổi. Việc hiểu rõ những điều cần thiết thay cho người cũng là chuyện đương nhiên."
+Cô đặt lòng bàn tay lên mảng tường đá sát lối ra. Trong khoảnh khắc, một dấu Mana mờ hiện lên dưới những đầu ngón tay rồi chìm vào bề mặt, biến mất như chưa từng tồn tại.
 
-"Rồi, rồi! Lắm chuyện quá! Mau đi thôi nào!"
+“Ngươi lại làm gì đấy?” Lara nghiêng đầu.
 
-Lara nắm lấy tay Kara, kéo cô chạy về phía khu rừng.
+“Chuẩn bị đường về.”
 
-Lần này, Kara không ngăn cản nữa.
+Kara rút tay lại. Đó là một điểm neo dịch chuyển, thứ cô có thể quay về khi kích hoạt năng lực. Cô chưa giỏi chiến đấu kéo dài, nhưng ít nhất vẫn đủ tự tin rằng nếu nắm được Lara, mình có thể đưa công chúa ra khỏi nguy hiểm.
 
----
+“Xong rồi. Đi thôi.”
 
-Bầu trời Chaos-Realm luôn mang một màu đỏ thẫm đặc trưng.
+“Cuối cùng cũng chịu đi!”
 
-Ở thế giới này, các sinh vật biến dị và những chủng loài có hình dạng kỳ lạ không phải điều hiếm gặp. Qua nhiều thế hệ, cư dân đã dần học cách thích nghi và chung sống với môi trường xung quanh.
-
-Trong số những quốc gia tồn tại tại đây, **Wavery** được biết đến là một vùng đất tương đối an toàn dưới sự trị vì của Quốc vương **Lerion**.
-
-Ngay cả khi các vết nứt không gian đang gây ra không ít bất ổn ở bên ngoài, cuộc sống bên trong vương quốc vẫn được duy trì nhờ hệ thống bảo hộ do chính nhà vua thiết lập.
-
-Khu rừng nơi Lara và Kara đang hướng tới cũng nằm trong phạm vi được bảo vệ ấy.
+Hai cô bé chạy về phía khu rừng, tay vẫn nắm lấy nhau.
 
 ---
 
-Cùng lúc đó, tại hoàng cung.
+Bầu trời Chaos-Realm mang sắc đỏ thẫm đặc trưng. Những sinh vật biến dị, các chủng loài có hình dạng khác lạ và những vùng đất chịu ảnh hưởng Mana bất ổn từ lâu đã trở thành một phần cuộc sống nơi đây.
 
-Sau khi nhận được một báo cáo khẩn từ các cận vệ, Lerion đi ngang qua khu vực nhà bếp.
+Giữa nhiều quốc gia tồn tại trong thế giới ấy, **Wavery** được xem là một vùng đất tương đối yên ổn dưới sự trị vì của Quốc vương **Lerion**. Những khu dân cư và cả cánh rừng Lara thường đến đều nằm trong phạm vi kết giới do chính ông duy trì.
 
-Nhìn thấy bóng dáng quen thuộc đang tất bật bên bếp lửa, ông bất giác mỉm cười.
+Với một đứa trẻ như Lara, điều đó đồng nghĩa khu rừng vẫn là khu rừng: có hoa để hái, có cây để trèo, có những khoảng đất trống đủ rộng để chạy đua với Kara.
 
-"Nàng vẫn tràn đầy năng lượng như mọi khi nhỉ, Mio?"
-
-Hoàng hậu ngoảnh lại.
-
-"Biết làm sao được? Chẳng phải trước khi cưới, ta đã báo trước với chàng về chuyện này rồi sao?"
-
-Mio chống một tay lên hông, nở nụ cười tinh nghịch.
-
-"Bởi vậy, ngay từ đầu chàng đã không nên cưới một thường dân như—"
-
-Câu nói chưa kịp kết thúc, Lerion đã đưa tay véo nhẹ má vợ.
-
-"Á! Chàng làm gì thế?"
-
-"Ta chưa bao giờ nói mình ghét điều đó ở nàng."
-
-Ông bật cười, ngón tay nhẹ nhàng buông khỏi gò má đang ửng hồng của Mio.
-
-"Chỉ là... mỗi lần nhìn nàng như vậy, ta lại có cảm giác giống hệt hồi chúng ta mới yêu nhau."
-
-"Chàng..."
-
-Mio hơi cúi đầu, hai tai dần đỏ lên.
-
-"Đừng nói những chuyện khiến ta ngại như thế chứ..."
-
-Những người hầu cùng các đầu bếp kín đáo nhìn nhau.
-
-Không ai bảo ai, họ lần lượt rón rén rời khỏi căn bếp, khép cửa lại để dành không gian riêng cho đôi vợ chồng.
-
-Một lúc sau, Lerion chợt hỏi:
-
-"À phải rồi, Lara đâu?"
-
-"Con bé ra ngoài chơi rồi. Chắc cũng sắp về thôi, chàng đừng lo."
-
-"Con bé lúc nào cũng hiếu động, lại còn tràn đầy năng lượng nữa."
-
-Lerion lắc đầu, nụ cười vẫn chưa rời khỏi môi.
-
-"Giống hệt mẹ nó."
-
-"Thế chẳng tốt sao?"
-
-Mio cười khúc khích, tắt bếp rồi bước đến bên chồng.
-
-Cô hơi nhón chân, đặt một nụ hôn lên má ông.
-
-"Biết đâu sau này con bé còn có được sự anh minh và thấu đáo giống phụ vương của nó nữa."
-
-Lần này đến lượt Lerion đỏ mặt.
-
-Ông nhìn vợ, im lặng một lúc trước khi bất chợt lên tiếng:
-
-"Hay là... chúng ta sinh thêm một đứa nữa nhỉ?"
-
-"Anh này!"
-
-Mio lập tức đấm nhẹ vào vai chồng, gương mặt đã đỏ nay lại càng đỏ hơn.
-
-"Thôi được rồi! Anh đi dọn bàn đi. Em sẽ đi tìm Lara về ăn cơm."
-
-Cô vừa định quay người rời đi thì Lerion đã nắm lấy tay cô.
-
-"Hửm?"
-
-Mio chưa kịp hiểu chuyện gì, ông đã nhẹ nhàng kéo cô xoay lại.
-
-Một nụ hôn được đặt lên môi cô.
-
-Khi Lerion buông tay, Mio vẫn còn đứng ngây ra vài giây.
-
-"Đi đường cẩn thận nhé."
-
-Ông mỉm cười.
-
-Mio lập tức quay mặt đi, cố giấu gương mặt đỏ bừng của mình.
-
-"Em... em biết rồi!"
-
-Nói xong, cô vội vã bước ra ngoài.
-
-Lerion nhìn theo bóng vợ, khẽ bật cười.
+Cô bé không có lý do gì để nghĩ hôm nay sẽ khác mọi ngày.
 
 ---
 
-Trong khi đó, Lara và Kara đã tới một khoảng đất trống giữa khu rừng.
+Trong hoàng cung, Lerion đi ngang căn bếp và nhận ra bóng dáng quen thuộc bên bếp lửa.
 
-Hai cô bé đang mải mê thu nhặt những bông hoa mọc rải rác dưới các tán cây.
+“Nàng vẫn tràn đầy năng lượng như mọi khi nhỉ, Mio?”
 
-"Công chúa, người định làm gì với số hoa này vậy?"
+Hoàng hậu ngoảnh lại, chống một tay lên hông.
 
-Kara ngồi xuống bên cạnh, cẩn thận nhặt thêm vài bông có màu sắc nổi bật.
+“Biết làm sao được? Trước khi cưới, ta đã báo trước với chàng chuyện này rồi cơ mà.”
 
-Lara quay sang, nở một nụ cười đầy tinh ranh.
+“Ta còn nhớ.”
 
-"Ngươi ấy, rõ ràng cũng là con gái mà chẳng có chút nữ tính nào cả!"
+“Bởi vậy, ngay từ đầu chàng đã không nên cưới một thường dân như—”
 
-"...Việc đó thì liên quan gì tới câu hỏi của tôi?"
+Lerion bước tới, véo nhẹ má vợ trước khi cô nói hết.
 
-"Hứ! Ta đang thu thập chúng để làm một món quà bất ngờ cho mẫu hậu đó!"
+“Á! Chàng làm gì thế?”
 
-"Ồ..."
+“Ta chưa bao giờ nói mình ghét điều đó ở nàng.” Ông buông tay, nhìn gương mặt đang ửng hồng của Mio. “Mỗi lần nhìn nàng trong bếp, ta lại có cảm giác giống hệt hồi chúng ta mới yêu nhau.”
 
-Kara nhìn những bông hoa trong tay Lara, rồi gật gù như thể vừa hiểu ra điều gì rất quan trọng.
+“Chàng…”
 
-"Ra là vậy. Nhưng về chuyện nữ tính thì... đã có Công chúa bù đắp cho phần của tôi rồi, nên tôi nghĩ mình không cần thiết phải thay đổi đâu."
+Mio cúi đầu, hai tai đỏ dần.
 
-"Ngươi...!"
+“Đừng nói mấy chuyện khiến ta ngại như thế chứ.”
 
-Lara nhìn Kara bằng ánh mắt bất lực.
+Những người hầu kín đáo nhìn nhau, lần lượt tìm cớ rời đi. Chẳng mấy chốc, căn bếp rộng lớn chỉ còn tiếng lửa cháy và câu chuyện của đôi vợ chồng.
 
-"Thôi, sao cũng được! Mau nhặt nhanh lên, còn phải về trước bữa tối nữa!"
+“À phải rồi,” Lerion hỏi, “Lara đâu?”
 
-"Vâng, thưa Công chúa."
+“Con bé ra ngoài chơi. Em đã dặn về ăn cơm rồi.”
 
-Cả hai lại cúi xuống, tiếp tục lựa chọn những bông hoa đẹp nhất.
+“Lại đi à?” Ông lắc đầu, nhưng vẫn bật cười. “Lara lúc nào cũng hiếu động. Giống hệt mẹ nó.”
 
-Không ai nhận ra rằng, ở phía bên trái Lara, cách cô bé chỉ chừng mười mét, không gian vừa xuất hiện một đường nứt rất nhỏ.
+“Thế chẳng tốt sao? Biết đâu sau này con bé còn có được sự anh minh và thấu đáo của phụ vương nữa.”
 
-Ban đầu, nó chỉ giống một vết rạn mỏng giữa không trung.
+Lerion thoáng ngượng ngùng trước lời khen. Mio tắt bếp, bước đến nhón chân hôn lên má chồng.
 
-Rồi đường rạn ấy bắt đầu lan rộng.
+Ông nhìn cô một lúc rồi nói, như thể ý nghĩ ấy vừa bất chợt xuất hiện:
+
+“Hay là… chúng ta sinh thêm một đứa nữa nhỉ?”
+
+“Anh này!”
+
+Mio đấm nhẹ vào vai ông, mặt đỏ hơn cả lúc trước.
+
+“Thôi được rồi. Anh đi dọn bàn đi, em sẽ tìm Lara về.”
+
+Cô vừa quay đi, Lerion đã nắm lấy tay vợ.
+
+“Hửm?”
+
+Ông kéo cô lại gần, đặt lên môi cô một nụ hôn. Khi buông ra, Mio vẫn đứng ngây người vài giây.
+
+“Đi đường cẩn thận nhé.”
+
+“Em… em biết rồi!”
+
+Mio vội quay đi, cố giấu gương mặt đỏ bừng, khiến Lerion không nhịn được cười.
+
+Chính lúc ấy, tiếng gõ cửa vang lên.
+
+“Thưa Đức vua. Hội đồng đang chờ người. Có một vấn đề liên quan đến an ninh quốc gia cần được bàn bạc ngay.”
+
+Lerion quay lại. Người đưa tin cúi đầu, hai tay nâng một bản báo cáo đã được niêm phong.
+
+“Khẩn đến mức này sao?”
+
+“Vâng, thưa ngài. Những người có trách nhiệm đều đã được triệu tập.”
+
+Lerion nhận tài liệu. Ông chỉ đọc lướt vài dòng rồi nhìn về phía cửa, nơi Mio vừa rời đi.
+
+“Được. Ta tới ngay.”
+
+Ông không biết rằng đúng vào lúc ấy, ở một nơi khác trong vương quốc, có những kẻ đã chuẩn bị từ rất lâu và đang chờ một cơ hội chỉ kéo dài vài phút.
 
 ---
 
-"Con bé này, chắc lại chạy vào rừng rồi..."
+Giữa khu rừng, Lara và Kara tìm được một khoảng đất có nhiều hoa mọc dưới những tán cây.
 
-Mio vừa đi vừa lẩm bẩm, nhưng khóe môi vẫn giữ nguyên nụ cười.
+“Công chúa, người định làm gì với số hoa này?” Kara hỏi, vừa nhặt một bông có cánh màu sẫm.
 
-Đúng là Lara chẳng bao giờ chịu ngồi yên một chỗ.
+Lara nhìn cô bạn, nở nụ cười tinh ranh.
 
-Giống hệt cô ngày trước.
+“Ngươi ấy, rõ ràng cũng là con gái mà chẳng có chút nữ tính nào!”
 
-Nghĩ tới đó, Mio bất giác đưa tay chạm nhẹ lên môi mình. Nụ hôn vừa rồi của Lerion vẫn khiến cô có chút ngượng ngùng.
+“…Việc đó liên quan gì tới câu hỏi của tôi?”
 
-"Đúng là... chàng ấy chẳng chịu báo trước gì cả."
+“Hứ! Ta định mang chúng về làm quà bất ngờ cho mẫu hậu đó!”
 
-Cô khẽ cười, tiếp tục bước về phía khu rừng.
+“Ồ.” Kara nhìn những bông hoa rồi gật gù. “Ra là vậy. Còn chuyện nữ tính thì… đã có Công chúa bù đắp cho phần của tôi rồi. Tôi nghĩ mình không cần thay đổi đâu.”
 
-"Lara! Con đang ở—"
+“Ngươi…!”
 
-Mio chợt ngừng lại.
+Lara muốn phản bác, nhưng nhìn gương mặt nghiêm túc của Kara lại chẳng biết phải nói gì.
 
-Phía trước, một vết nứt khổng lồ bất ngờ xé toạc khoảng không giữa những hàng cây.
+“Thôi, sao cũng được! Mau nhặt nhanh lên, còn phải về trước bữa tối nữa!”
 
-Gió nổi lên dữ dội.
+“Vâng, thưa Công chúa.”
 
-Cành lá, đất đá và mọi thứ xung quanh bắt đầu bị kéo về phía vết nứt.
+Một bông hoa đỏ thẫm thu hút Lara. Màu cánh khiến cô bé nhớ tới mái tóc của mẹ, thế là cô cẩn thận giữ nó riêng khỏi những bông còn lại.
 
-Nụ cười trên gương mặt Mio lập tức biến mất.
+Cách hai cô bé không xa, một gợn sáng thoáng lướt qua không trung rồi biến mất.
 
-"...Lara?"
+Kara ngẩng đầu. Cảm giác vừa rồi rất giống một dao động Mana nhỏ, nhưng khi cô quan sát kỹ, khu rừng vẫn yên tĩnh. Dấu hiệu quen thuộc của kết giới Wavery cũng không có gì bất thường.
 
-Một dự cảm bất an chạy dọc sống lưng cô.
+Cô không biết rằng có một lớp nhiễu rất mỏng đang che đi sự hao mòn của kết giới thật. Từ nơi ẩn nấp ngoài phạm vi bảo hộ, những kẻ quan sát đã chờ đúng khoảnh khắc này.
 
-Ngay sau đó, Mio lao về phía trước với tốc độ nhanh nhất có thể.
+Ở phía bên trái Lara, cách cô bé chừng mười mét, không gian bắt đầu rạn ra.
+
+Một đường nứt rất nhỏ.
+
+Rồi thêm một đường nữa.
+
+Không ai kịp nhận ra.
 
 ---
 
-"LARA!"
+“Con bé này, chắc lại chạy vào rừng rồi…”
+
+Mio vừa đi vừa lẩm bẩm. Cô biết gần như mọi nơi Lara thích chơi, nhất là khoảng đất trống có nhiều hoa. Nghĩ tới lúc con gái trở về với hai bàn tay đầy đất, cô lại bật cười.
+
+Rồi Mio nhớ đến nụ hôn vừa rồi của chồng, bất giác đưa tay chạm môi.
+
+“Đúng là… chẳng chịu báo trước gì cả.”
+
+Cô bước sâu hơn vào rừng.
+
+“Lara! Con đang ở—”
+
+Câu gọi bị cắt ngang.
+
+Giữa những thân cây phía trước, một vết nứt khổng lồ xé toạc không gian. Gió nổi lên dữ dội, cuốn đất đá và cành lá về phía khoảng tối đang mở rộng.
+
+Mio đứng sững một nhịp.
+
+“…Lara?”
+
+Rồi cô lao đi, nhanh đến mức những nhánh cây hai bên chỉ kịp rung lên sau khi cô đã lướt qua.
+
+---
+
+“LARA!”
 
 Kara hét lớn.
 
-Vết nứt ban đầu đã mở rộng với tốc độ kinh hoàng. Lực hút từ nó khiến cả khoảng đất xung quanh rung chuyển, những bụi cây nhỏ lần lượt bị bật khỏi mặt đất.
+Vết nứt mới chỉ bằng một đường rạn mảnh lúc ban đầu đã mở rộng với tốc độ kinh hoàng. Những bụi cây nhỏ bị giật bật khỏi mặt đất; đám hoa hai cô bé vừa hái tản ra trong gió. Kara cắm gót chân xuống đất, cố kéo Lara lùi lại, nhưng lực hút tăng lên từng nhịp.
 
 Không thể nào.
 
-Khu vực này vẫn nằm bên trong rào chắn do chính Đức vua tạo ra cơ mà!
+Khu rừng này nằm trong kết giới do chính Đức vua dựng lên. Nếu Rift có thể xuất hiện ở đây thì…
 
-Một vết nứt không thể cứ thế xuất hiện tại đây.
+Kara thoáng nghĩ đến một người, một người có thể biết nhiều hơn mức đáng lẽ họ được biết về kết giới của Wavery. Cô nghiến răng, gạt ý nghĩ đó đi. Nghi ngờ không cứu được Lara lúc này.
 
-Trừ khi...
+“ĐƯA TAY CHO CHỊ!”
 
-Kara nghiến răng, gạt suy nghĩ ấy sang một bên.
+Lara đã bị tách khỏi cô. Hai tay cô bé bám vào một cụm rễ cây nhô khỏi mặt đất, đôi chân chới với giữa gió xoáy.
 
-Không còn thời gian nữa!
+“Ka… Kara!”
 
-Cô lập tức kích hoạt năng lực, cố gắng thiết lập liên kết với một vật thể đã được bố trí từ trước để phòng ngừa những tình huống khẩn cấp.
+Kara cố tiến gần. Điểm neo cô đặt lên bức tường lúc rời cung vẫn còn đó. Chỉ cần chạm vào Lara và duy trì được liên kết trong một khoảnh khắc, cô có thể đưa cả hai về.
 
-Chỉ cần nắm được tay Lara, Kara có thể đưa cả hai dịch chuyển tới nơi an toàn.
-
-"NẮM LẤY TAY CHỊ!"
-
-Kara vừa hét vừa cố giữ thăng bằng, từng bước tiến về phía công chúa.
-
-Lara lúc này đã phải bám chặt vào những rễ cây nhô khỏi mặt đất. Mái tóc cô bé bị gió giật tung, đôi chân gần như không còn điểm tựa.
-
-"Ka... Kara!"
-
-Cô cố vươn một tay về phía người bạn của mình.
-
-Nhưng khoảng cách giữa hai người vẫn còn quá xa.
-
-"LARA!"
-
-Một giọng nói khác vang lên.
-
-"MẸ!"
-
-Mio cuối cùng cũng tới nơi.
-
-Không một chút do dự, cô lao về phía con gái, đưa tay ra hết mức có thể.
-
-Chỉ một chút nữa thôi.
-
-Đầu ngón tay của hai mẹ con gần như đã chạm vào nhau.
+Nhưng khi ngón tay hai cô bé chỉ còn cách nhau một quãng ngắn, một vật gì đó vụt qua trước mặt Kara.
 
 _Vút!_
 
-Một mũi tên bất ngờ lao tới, cắm thẳng vào bắp chân Mio.
+Mũi tên cắm xuống đất, ngay nơi cô vừa đặt chân.
 
-"Ư...!"
+“Cái gì…?”
 
-Cơn đau khiến cô mất thăng bằng, một đầu gối đập mạnh xuống đất.
+Một mũi nữa lao tới. Kara lập tức nghiêng người tránh, rút đoản kiếm bên hông. Giữa những thân cây xa hơn, hai bóng người khoác áo choàng đang giương cung. Chúng không hề bị gió hất ngã như những thân cây quanh đó. Dưới chân mỗi kẻ, một vùng Mana mỏng bao lấy đất và giày, giữ chúng bám chặt vào vị trí.
 
-"MẸ!"
+Những vùng bảo hộ ấy vẫn rung lên vì Rift, nhưng không tan biến.
 
-Lara hoảng hốt hét lên.
+“CÓ ĐỊCH!”
 
-Mio nghiến răng, chống tay đứng dậy. Dù chân đã bị thương, cô vẫn cố tiếp tục tiến về phía con gái.
+Kara vừa hét vừa tìm góc tiếp cận Lara. Mũi tên tiếp theo không nhắm vào cô mà bay thẳng về phía công chúa, buộc Kara phải lao sang chặn đường bắn. Lưỡi đoản kiếm gạt lệch mũi tên, nhưng cú va chạm khiến cánh tay cô tê rần.
 
-"Cái gì!? KẺ NÀO!?"
+“LARA!”
 
-Kara lập tức quay đầu tìm kiếm.
+Một giọng nói khác vang lên từ phía sau.
 
-Giữa những hàng cây, hai bóng người khoác áo choàng trùm kín đang giương cung về phía Hoàng hậu.
+“MẸ!”
 
-"CÓ ĐỊCH!"
+Mio lao vào khoảng đất trống, nhìn thấy con gái đang chới với bên mép vùng hút. Cô không dừng lại để tìm hiểu những bóng áo choàng kia là ai, chỉ chạy đến bên Lara.
 
-Kara lập tức chuyển hướng, sử dụng năng lực để chặn những mũi tên tiếp theo đang lao tới.
+Nhưng một mũi tên bất ngờ cắm thẳng vào bắp chân cô.
 
-Từng đợt tấn công bị ngăn lại giữa không trung.
+“Ư…!”
 
-Thế nhưng, ngay khi cô vừa tập trung đối phó với hai kẻ cầm cung, một bóng người thứ ba bất ngờ xuất hiện từ phía bên kia.
+Mio khuỵu xuống, một đầu gối đập mạnh vào đất. Cô nghiến răng đứng dậy, kéo chân bị thương theo mình.
 
-Hắn lao thẳng về phía Mio.
+“MẸ!”
 
-"HOÀNG HẬU!"
+“Đừng buông tay, Lara! Mẹ đến ngay đây!”
 
-Kara vội đưa tay ra, dùng năng lực chặn đứng bước tiến của kẻ vừa xuất hiện.
+Kara quay về phía hai kẻ cầm cung. Một bóng người thứ ba xuất hiện từ mé rừng đối diện và lao thẳng vào Mio. Hắn cũng mang đôi giày tỏa Mana khác thường; mỗi bước chân đều bám chắc xuống đất bất chấp sức hút khủng khiếp quanh hắn.
 
-Nhưng chính khoảnh khắc ấy đã khiến cô để lộ sơ hở.
+“HOÀNG HẬU!”
+
+Kara lao tới, dùng đoản kiếm đón đòn kẻ vừa xuất hiện. Hắn bị buộc phải đổi hướng, nhưng hai cung thủ lập tức tận dụng khoảng trống sau lưng cô.
 
 _Phập!_
 
-Một mũi tên xuyên vào vùng bụng Kara.
+Một mũi tên cắm sâu vào bụng Kara.
 
-"...Khụ!"
+“…Khụ!”
 
-Cô bé khụy xuống, một tay ôm lấy vết thương.
+Cô khựng lại, bàn tay siết vết thương. Đôi chân muốn khuỵu xuống nhưng Kara vẫn cố giữ thăng bằng, dùng thanh kiếm ngăn tên sát thủ tiến về phía hai mẹ con.
 
-Dẫu vậy, năng lực của Kara vẫn chưa bị giải trừ.
+Dù đã được cha huấn luyện, đây vẫn là một cuộc chiến vượt quá kinh nghiệm của cô. Kara giỏi chuẩn bị đường thoát hơn là chống chọi một lúc với nhiều kẻ địch giữa vùng không gian hỗn loạn. Điểm neo ở bức tường vẫn chờ cô trở về; chỉ cần kích hoạt, ít nhất cô có thể thoát thân.
 
-Cô cố gượng dậy, tiếp tục ngăn những kẻ tấn công tiến đến gần hai mẹ con.
+Nhưng Lara vẫn ở đó.
 
-Không được.
+Và Mio cũng vậy.
 
-Chỉ cần thêm một chút nữa...
+Kara biết mình sẽ không chịu nổi ý nghĩ bỏ mặc họ.
 
-Chỉ cần giữ được chúng cho đến khi Công chúa an toàn...
+“Chỉ một chút nữa thôi…”
 
-Nhưng những mũi tên vẫn không ngừng lao tới.
+Cô cố đứng chắn trước đường bắn, nhưng cơn đau cùng sự mất máu khiến tầm nhìn bắt đầu nhòe đi.
 
-Việc vừa duy trì liên kết dịch chuyển, vừa chống lại lực hút của vết nứt, lại vừa ngăn chặn những kẻ tấn công đã nhanh chóng đẩy Kara đến giới hạn.
+Phía trước, Mio cuối cùng cũng đến được bên Lara. Cô quỳ xuống, ôm chặt con gái vào lòng, lấy lưng và vai che cho cô bé.
 
-Tầm nhìn cô bắt đầu nhòe đi.
+“Mẹ! Con xin lỗi! Con… con…”
 
-Trong khi đó, Mio cuối cùng cũng tới được bên Lara.
+Lara nức nở. Những bông hoa cô nâng niu đã bị gió cuốn gần hết. Chỉ còn vài cành nhàu nát nằm trong bàn tay đang run.
 
-Cô lập tức ôm chặt lấy con gái, dùng chính cơ thể mình che chắn cho cô bé trước những mũi tên đang bay tới.
+“Không sao đâu, con yêu.” Mio kéo đầu Lara áp vào ngực mình. “Có mẹ đây rồi.”
 
-"MẸ! Con xin lỗi! Con... con..."
+Một mũi tên khác xuyên vào vai Mio.
 
-Giọng Lara run rẩy.
+Cô giật mạnh, rồi cảm thấy cánh tay tê dại một cách bất thường. Cơn tê lan dần xuống ngực, qua những đầu ngón tay đang cố ôm con gái.
 
-Số hoa cô bé vất vả thu nhặt đã bị gió cuốn đi gần hết. Những cành còn lại bị bàn tay nhỏ siết chặt đến nhàu nát.
+“…Tên độc?”
 
-"Không sao đâu, Lara."
+Mio đưa mắt nhìn về phía những kẻ tấn công. Bên dưới lớp áo choàng, chúng vẫn đứng vững như thể đã biết chính xác phải chuẩn bị thế nào cho một cuộc phục kích gần Rift.
 
-Mio cố nở một nụ cười, vòng tay càng ôm chặt con gái hơn.
+Ở phía xa, Kara vươn tay về phía hai mẹ con lần cuối.
 
-"Có mẹ ở đây rồi. Mọi chuyện sẽ ổn thôi, con yêu..."
+“Công… chúa…”
 
-_Vút!_
-
-Một mũi tên khác xuyên vào vai cô.
-
-Mio lảo đảo.
-
-"...Ư!"
-
-Cảm giác tê dại bất thường bắt đầu lan ra từ vết thương, nhanh chóng chạy dọc cánh tay và khắp cơ thể.
-
-Cô nhìn xuống mũi tên.
-
-"...Mũi... tên độc...?"
-
-Sức lực trong người Mio đang dần biến mất.
-
-Ở phía xa, Kara vẫn cố đưa tay về phía hai mẹ con, nhưng cơ thể cô bé cuối cùng cũng không chịu nổi nữa.
-
-"Không... Công chúa..."
-
-Năng lực dần tan đi.
-
-Kara đổ gục xuống mặt đất.
+Thanh đoản kiếm tuột khỏi tay. Cô bé đổ gục xuống đám rễ cây bị bật tung.
 
 ---
 
-Trong khi ấy, Lerion vẫn đang xử lý những giấy tờ còn dang dở trong hoàng cung.
+Trong phòng họp, Lerion lật sang trang tiếp theo của bản báo cáo. Những người được triệu tập đang tranh luận về một vấn đề biên giới và an ninh quốc gia, nghiêm trọng đến mức cần nhà vua trực tiếp quyết định.
 
-Đầu bút trong tay ông bất chợt dừng lại.
+Những lời lẽ trên giấy đều có vẻ hợp lý, nhưng Lerion không thấy được điều gì cấp thiết đến mức phải triệu tập cuộc họp đột ngột như vậy.
 
-Một cảm giác bất an không rõ nguyên nhân chạy dọc sống lưng.
+Ông còn chưa lên tiếng thì đầu ngón tay chợt khựng lại.
 
-Lerion lập tức đứng bật dậy.
+Một cảm giác bất an len vào lồng ngực.
 
-Người hầu đứng bên cạnh giật mình.
+Lerion nhìn về phía cửa sổ. Kết giới Wavery vẫn cho ông cảm giác ổn định như mọi khi, nhưng chính không gian ở phía khu rừng Lara thường đến lại khiến ông thấy có gì đó không đúng.
 
-"Thưa Đức vua, có chuyện gì v—"
+“Thưa Đức vua?”
 
-Ông không chờ người kia nói hết.
+Ông đứng bật dậy.
 
-Không gian quanh Lerion khẽ méo đi.
+“Dời cuộc họp lại.”
 
-Chỉ trong một khoảnh khắc, ông biến mất khỏi căn phòng.
+“Nhưng thưa ngài, báo cáo này—”
+
+Không gian quanh Lerion vặn xoắn. Chưa ai kịp nói hết câu, ông đã biến mất.
 
 ---
 
-Lực hút từ vết nứt càng lúc càng mạnh.
+Lực hút từ Rift càng lúc càng mạnh. Mio giữ Lara sát vào lòng, một tay cố bám lấy phần rễ cây cuối cùng chưa bật khỏi đất. Vết thương ở chân nhức buốt; độc tố khiến cử động của cô ngày một khó khăn.
 
-Mio cố bám lấy phần rễ cây còn sót lại, nhưng chân cô đã bị thương, độc tố lại đang khiến cơ thể mất dần cảm giác.
+“Lara.”
 
-Cô nhìn xuống Lara.
+“Dạ…?”
 
-Con gái cô đang run rẩy trong vòng tay mình.
+“Nhìn mẹ này.”
 
-Mio không nói thêm gì nữa.
+Cô bé ngước lên. Mio cố nở nụ cười quen thuộc, dù chính cô cũng không biết hai mẹ con còn chống đỡ được bao lâu.
 
-Cô chỉ dùng chút sức lực còn lại để ôm lấy Lara, giữ đầu con bé áp sát vào ngực mình.
+“Đừng sợ.”
 
-Ngay lúc ấy—
+“Mẹ cũng đừng buông con nhé…”
 
-Không gian bên cạnh cô đột ngột dao động.
+“Mẹ không buông đâu.”
 
-"MIO!"
+Ngay lúc đó, khoảng không bên cạnh họ biến dạng.
 
-Một bóng người xuất hiện giữa những luồng gió dữ dội.
+“MIO!”
 
-Mio lập tức ngẩng lên.
+Lerion xuất hiện giữa những luồng gió dữ dội. Khi nhìn thấy mũi tên trên vai vợ và đôi tay Lara đang bám chặt lấy cô, ông không hỏi thêm một câu nào, chỉ lao tới ôm lấy cả hai.
 
-"...Lerion?"
+“Giữ chặt anh!”
 
-Lerion lao tới, một tay ôm lấy Mio, tay còn lại giữ chặt cả Lara trong vòng tay cô.
+Mana bùng lên quanh Lerion. Ông xác định tọa độ gần khu vực hoàng cung, nơi mình vừa rời đi, rồi mở một lối dịch chuyển.
 
-"Giữ chặt anh!"
-
-Mana quanh cơ thể ông bùng lên.
-
-Không gian lập tức vặn xoắn.
-
-Nhưng rồi—
+Một khe sáng mỏng hiện ra.
 
 _Rắc!_
 
-Điểm dịch chuyển vừa hình thành lập tức tan vỡ.
+Nó vỡ vụn trước khi đủ rộng để đưa một người qua.
 
-Lerion khựng lại.
+Lerion thử lần nữa. Không gian vừa bị tách ra đã lập tức co sập, như thể Rift bên cạnh đang nghiền nát mọi con đường khác mà ông cố tạo nên. Dòng Mana vươn tới vùng hỗn loạn bị kéo loãng rồi biến mất.
 
-Ông thử lần nữa.
+“…Chết tiệt.”
 
-Mana tiếp tục hội tụ, cố khóa lấy một tọa độ bên ngoài khu rừng.
+Ông chuyển sang tạo một lớp ổn định không gian quanh hai mẹ con. Nó cũng không trụ được lâu; những đường rạn mới lập tức xé ngang lớp bảo hộ.
 
-Thế nhưng, không gian quanh vết nứt đã trở nên quá hỗn loạn.
+Không thể dùng Magic tầm xa ở sát Rift. Không thể mở đường xuyên qua nó. Lerion hiểu rõ một tọa độ và có thể can thiệp vào không gian quanh mình, nhưng những phương pháp ấy đều bị sự hỗn loạn trước mắt bẻ gãy.
 
-Mỗi lần Lerion cố thiết lập một điểm neo, lực hút từ Rift lại bóp méo nó trước khi quá trình dịch chuyển hoàn tất.
+Ông đành dùng toàn bộ sức lực giữ hai mẹ con, ghì chân vào phần đất còn nguyên để kéo họ ra ngoài.
 
-"...Chết tiệt."
+Mặt đất nứt vỡ. Những rễ cây bị kéo bật tung. Lerion vẫn không chịu buông.
 
-Ông nghiến răng.
+“Lerion…”
 
-Không còn thời gian để thử thêm nữa.
+Mio nhìn chồng. Cô thấy rõ cách ông đang chống đỡ: mỗi khi kéo họ nhích được một chút, Rift lại mở rộng và giành lại khoảng cách ấy. Nếu tiếp tục, chính ông cũng sẽ bị cuốn vào.
 
-Lerion siết chặt hai mẹ con trong tay, chống chân xuống mặt đất rồi dùng toàn bộ sức mạnh thể chất kéo họ ra khỏi vùng hút.
+“Anh không thể ở lại đây.”
 
-Mặt đất dưới chân ông nứt vỡ.
+“Anh sẽ không buông.”
 
-Từng rễ cây bật tung khỏi đất.
+“Anh còn Wavery. Còn những người đang chờ anh trở về.”
 
-Nhưng vết nứt vẫn tiếp tục mở rộng.
+“Mio, bây giờ không phải lúc—”
 
-"Lerion..."
+“Vậy thì…” Mio nhìn xuống con gái, rồi ngẩng lên. “Hãy chăm sóc Lara thay em.”
 
-Mio nhìn chồng.
+Lerion sững người.
 
-Cô nhanh chóng hiểu ông đang định làm gì.
+Ông hiểu điều Mio muốn nói. Chỉ cần Lara rời khỏi vòng tay mẹ, ông sẽ cố đưa con ra khỏi vùng hút trước, rồi tìm cách trở lại với vợ.
 
-Nếu không thể đưa hai mẹ con ra ngoài—
+Nhưng Lara nghe thấy tất cả.
 
-thì Lerion sẽ tiếp tục giữ lấy họ.
+Cô bé ngẩng phắt đầu nhìn Mio. Đôi mắt mở to, rồi chậm chạp chuyển sang cha. Trong đôi mắt ấy có sợ hãi, có do dự và một câu hỏi mà Lara không biết phải nói thành lời.
 
-Cho đến khi chính ông cũng bị kéo vào Rift.
+Lerion vẫn luôn yêu thương con gái. Ông biết con bé thích chạy nhảy, biết Mio thường phải đi tìm con trước bữa tối. Nhưng ông cũng đã bỏ lỡ quá nhiều buổi chiều, nhiều câu chuyện và cả những lần Lara chỉ muốn ông ở nhà lâu hơn một chút.
 
-"Anh định..."
+Lara không ghét cha. Cô chỉ quen tìm đến mẹ mỗi khi sợ hãi. Giờ đây, nghĩ tới chuyện buông Mio để sang vòng tay người cha hiếm khi ở bên mình, cô bé càng hoảng loạn.
 
-Mio khẽ thì thầm.
+“Con… không…”
 
-Lerion không trả lời.
+Bàn tay Lara siết chặt áo mẹ.
 
-Ông chỉ siết tay chặt hơn.
+“Con không muốn rời mẹ!”
 
-"Anh sẽ không buông."
+Mio cảm nhận được con gái đang bám mình đến run rẩy. Lerion cũng cảm nhận được. Trong một khoảnh khắc rất ngắn, ông nhìn Lara như thể lần đầu tiên nhận ra khoảng cách giữa hai cha con lớn đến thế nào.
 
-Một giọt nước mắt lăn xuống gò má Mio.
+Một khoảnh khắc thôi.
 
-"Không được."
+Nhưng Rift không chờ ai.
 
-Lerion nhìn cô.
+Phần đất dưới chân Lerion sụp xuống thêm một đoạn. Mio nhìn ông, rồi nhìn Lara. Nếu cứ thế này, cả ba sẽ cùng biến mất, bỏ lại Wavery không có người đứng đầu.
 
-"Em nói gì?"
+Cô đưa bàn tay đang dần mất cảm giác lên ngực chồng.
 
-"Anh vẫn còn người dân của mình."
+“Em xin lỗi.”
 
-Giọng Mio run lên.
+“Mio…?”
 
-"Anh vẫn còn Wavery."
+“Đừng để mọi người phải chịu thêm chuyện gì nữa.”
 
-"Mio, bây giờ không phải lúc để—"
+Mio dồn chút sức còn lại vào cú đẩy bất ngờ. Lerion đang mất thế đứng và chưa kịp phản ứng trước ánh mắt của con gái; cánh tay ông tuột khỏi hai mẹ con. Cú đẩy khiến ông ngã văng về phần đất ngoài rìa vùng hút.
 
-"Anh không thể đi cùng mẹ con em."
+“MIO!”
 
-"Mio!"
+Ông chống tay định lao trở lại ngay. Nhưng khoảng đất vừa đứng đã vỡ vụn, và Rift mở rộng lần cuối như một vết thương bị xé toạc.
 
-Lerion cố kéo cô lại gần hơn.
+“LARA!”
 
-Nhưng Mio chỉ nhìn chồng, đôi mắt đã nhòe đi vì nước mắt.
+Mio chỉ kịp giữ con gái thật chặt.
 
-"Em xin lỗi."
-
-Giọt nước mắt vừa rơi khỏi gương mặt cô bất chợt phát sáng.
-
-Một lượng Mana nhỏ bé hội tụ bên trong nó.
-
-"Lerion..."
-
-Mio mỉm cười.
-
-"Hãy bảo vệ mọi người thay em nhé."
-
-"MIO—!"
-
-Giọt nước mắt vỡ tung.
-
-Một luồng lực bất ngờ đẩy mạnh vào ngực Lerion.
-
-Bàn tay ông tuột khỏi Mio.
-
-"KHÔNG!"
-
-Cơ thể Lerion bị hất khỏi vùng hút ngay trước khi vết nứt mở rộng lần cuối.
-
-Ông lập tức chống tay xuống đất, cố lao trở lại.
-
-Nhưng đã quá muộn.
-
-Mio chỉ còn kịp ôm Lara chặt hơn vào lòng.
-
-Rồi cả hai bị vết nứt nuốt chửng.
+Rồi hai mẹ con biến mất trong khoảng tối.
 
 Không gian khép lại.
 
-"MIO! LARA!"
+---
 
-Lerion lập tức lao về phía nơi Rift vừa biến mất, cánh tay vẫn cố vươn tới khoảng không trước mặt.
+Lerion lao tới nơi Rift vừa tồn tại. Bàn tay ông xuyên qua không khí trống rỗng.
 
-Mana quanh cơ thể ông dao động dữ dội.
+Ông ép Mana vào vùng không gian ấy, cố tìm một dấu vết, một tọa độ, bất cứ thứ gì có thể nối tới nơi Mio và Lara bị cuốn đi.
 
-Ông cố ép không gian mở ra lần nữa.
+Không có gì.
 
-Một lần.
+Không biết đích đến, Lerion không có điểm nào để định vị. Lần đầu tiên sau rất nhiều năm, năng lực từng giúp ông vượt qua những khoảng cách không tưởng trở nên hoàn toàn vô dụng.
 
-Rồi thêm một lần nữa.
+“Mio…”
 
-Nhưng không còn điểm đến nào để khóa lấy.
+Ông gọi tên vợ, giọng khản đi.
 
-Lerion không biết Rift đã đưa Mio và Lara tới đâu. Không có tọa độ, không có dấu vết, cũng chẳng còn bất kỳ thứ gì để năng lực của ông bám vào.
+“Lara…”
 
-Đầu ngón tay ông chỉ chạm phải khoảng không lạnh ngắt.
+Không ai đáp.
 
-Lerion đứng chết lặng.
+Trong đầu Lerion chợt vang lên một giọng nói cũ, xa xôi đến mức ông đã tưởng mình quên mất:
 
-Chưa bao giờ ông cảm thấy mình bất lực đến nhường này.
+_“Một vị vua, đến việc bảo vệ gia đình của mình còn không làm được, thì mày còn làm được gì nữa hả, Lerion…?”_
 
-Rồi, từ một nơi rất sâu trong ký ức, một giọng nói cùng hình bóng mơ hồ của quá khứ chợt hiện lên.
+Ông siết bàn tay đang run. Mana trong cơ thể chưa ổn định sau khi tiếp cận Rift; chỉ một phần áp lực vô thức rò rỉ cũng đủ khiến mặt đất dưới chân rạn nứt.
 
-"Một vị vua, đến việc bảo vệ gia đình của mình còn không làm được, thì mày còn làm được gì nữa hả, Lerion...?"
+Quân tiếp viện cuối cùng cũng tới.
 
-Bàn tay Lerion siết chặt.
+Giữa những thân cây gãy đổ, các bóng áo choàng vẫn chưa kịp rút hết. Lerion nhìn thấy chúng. Không gian quanh ông méo đi, rồi ông đã xuất hiện ngay trước mặt kẻ gần nhất.
 
-Mana trong cơ thể ông vẫn chưa hoàn toàn ổn định sau khi tiếp xúc quá gần với Rift, nhưng chỉ riêng áp lực vô thức tràn ra cũng đã khiến mặt đất dưới chân bắt đầu rạn nứt.
+Cuộc giao chiến kết thúc trong chớp mắt. Một tên bị đánh ngã, hai kẻ còn lại bị tước vũ khí. Khi lính Wavery định khống chế chúng, một kẻ cắn chặt thứ gì đó giấu trong miệng. Hắn co giật rồi bất động. Kẻ còn lại cũng gục xuống trước khi kịp thốt ra một lời khai.
+
+Lerion cúi xuống bên một trong những cái xác. Tà áo choàng bị xô lệch để lộ biểu tượng thêu bên trong: hình một Rift với các đường rạn như đang xé không gian thành nhiều mảnh.
+
+Ông nhận ra nó.
+
+“…Ritton.”
+
+Vương quốc ấy từng cử người đến Wavery bàn chuyện hợp tác và quan hệ láng giềng. Những đề nghị nghe có vẻ hữu hảo, nhưng Lerion hiểu chúng còn mang tham vọng đặt Wavery dưới ảnh hưởng của Ritton. Ông từng thấy biểu tượng này trong một lần tiếp xúc trước đó.
+
+Đem nó vào một vụ tấn công bí mật không giống cách hành động của những kẻ sợ bị phát hiện.
+
+Giống một lời khiêu khích hơn.
+
+Lerion nghiến răng. Wavery không đủ tiềm lực để tùy tiện lao vào một cuộc chiến; những người sẽ phải trả giá đầu tiên luôn là dân thường. Ông biết điều đó, ngay cả khi cơn giận đang khiến hai bàn tay run lên.
+
+“Mio…”
+
+Lerion quay về khoảng đất nơi Rift đã khép lại. Không còn dấu vết nào của vợ và con. Những gốc cây gần đó nứt toác dưới áp lực Mana đang trào ra quanh ông.
+
+Rồi ông cảm thấy một nhịp sống yếu ớt giữa đống cành lá.
+
+“…Kara?”
+
+Ông bước đến, bế cô bé cận vệ lên. Máu thấm qua lớp áo đồng phục, đôi mắt Kara chỉ hé mở được một chút.
+
+“Đức… vua…”
+
+“Đừng nói.”
+
+“Thần… xin lỗi… vì đã không thể…”
+
+“Đủ rồi.”
+
+Giọng Lerion trầm xuống. Ông không trách cô bé.
+
+“Ngươi đã chiến đấu hết mình. Hãy nghỉ ngơi đi.”
+
+Khi các trị liệu viên chạy tới, ông tự tay giao Kara cho họ. Rồi Lerion đứng nhìn đoàn người đưa cô bé rời khu rừng.
+
+Từ hôm ấy, những người sống trong Wavery hiếm khi còn được thấy nụ cười hiền hòa mà vị vua của họ từng dành cho gia đình.
 
 ---
 
-Quân tiếp viện cuối cùng cũng tới nơi.
+Ở một nơi khác, Lara mở mắt.
 
-Lerion vẫn đứng bất động thêm vài nhịp thở.
+“…Mẹ?”
 
-Rồi ánh mắt ông chậm rãi quét qua những kẻ ám sát còn lại.
+Gương mặt Mio đang ở ngay phía trên. Cô bé nằm gối đầu lên đùi mẹ, còn bên ngoài cửa hang, những vệt nắng vàng trải dài trên nền đá.
 
-Không gian quanh nhà vua khẽ méo đi.
+“Con tỉnh rồi sao? Có đau ở đâu không?”
 
-Chỉ trong chớp mắt, Lerion đã xuất hiện ngay trước mặt chúng.
+Lara bật ngồi dậy.
 
-Ông không cho chúng thêm bất kỳ cơ hội nào để tiếp tục tấn công.
+“Đây là đâu vậy mẹ? Cha đâu ạ? Cả Kara nữa? Mọi người đâu rồi?”
 
-Cuộc giao chiến kết thúc chỉ trong một khoảng thời gian ngắn.
+“Bình tĩnh nào.” Mio xoa tóc con gái. “Mẹ cũng vừa tỉnh trước con một lúc. Chúng ta có vẻ đã tới một thế giới khác.”
 
-Khi một trong những kẻ bí ẩn ngã xuống, tà áo choàng của hắn bị xô lệch, để lộ một biểu tượng được thêu ở mặt trong lớp vải.
+“Thế giới… khác ạ?”
 
-Một vết nứt Rift, với những đường rạn ngoằn ngoèo như đang xé toạc chính khoảng không bao quanh nó.
+“Ừm. Mẹ không nhìn thấy bầu trời đỏ của Chaos-Realm đâu cả. Chỗ này có lẽ là một hang động gần bờ biển.”
 
-Lerion khựng lại.
+Lara nhìn quanh. Tiếng nước chảy và tiếng chim hót vang lên bên ngoài. Cô bé vô thức nắm chặt tay, chợt nhận ra những cành hoa còn sót lại vẫn nằm trong lòng bàn tay. Đã bị vò nát đến mức gần như không nhận ra hình dáng ban đầu.
 
-Ông nhận ra biểu tượng ấy.
+“Con…”
 
-"...Cường quốc Ritton..."
+Mio nhìn xuống những bông hoa.
 
-Bàn tay nhà vua siết chặt đến mức máu bắt đầu rỉ ra.
+“Ồ, con hái chúng để tặng mẹ à?”
 
-Hàm răng ông nghiến lại.
+“Dạ. Nhưng vì con mà…”
 
-Gương mặt hiền hòa khi còn đứng bên Mio trong căn bếp đã hoàn toàn biến mất. Lúc này, thứ còn lại chỉ là một cơn giận dữ lạnh lẽo đến đáng sợ.
+“Lara.”
 
-"Mio..."
+Mio véo nhẹ má cô bé.
 
-Lerion bước tới vị trí vết nứt vừa biến mất.
+“Đừng tự nhận hết lỗi về mình. Mẹ đang ở đây với con mà.”
 
-Không có gì ở đó.
+“Nhưng còn cha…”
 
-Chỉ còn một khoảng đất trống bị tàn phá đến mức ngay cả những ngọn cỏ cũng không còn nguyên vẹn.
+“Mẹ cũng nhớ cha con.” Mio ngừng một chút. “Và mẹ tin ông ấy đang tìm chúng ta. Việc của hai mẹ con bây giờ là giữ sức khỏe, tìm chỗ ở và chờ cơ hội trở về.”
 
-"...Lara"
+Lara ngước lên, mắt vẫn đỏ hoe.
 
-Không ai trả lời.
+“Mẹ hứa chứ?”
 
-Lerion đứng bất động.
+“Mẹ hứa sẽ cố hết sức.”
 
-Một khoảng lặng nặng nề bao trùm khu rừng.
-
-Rồi những thân cây xung quanh bắt đầu phát ra tiếng răng rắc.
-
-Mặt đất rung chuyển.
-
-Dưới áp lực vô hình tỏa ra từ nhà vua, những thân cây gần đó dần nứt toác, cong vẹo và biến dạng.
-
-Thế nhưng, ngay khi sức mạnh ấy chuẩn bị vượt khỏi tầm kiểm soát, Lerion chợt cảm nhận được một dấu hiệu sinh mệnh yếu ớt.
-
-Ông lập tức quay đầu.
-
-"...Kara?"
-
-Cách đó không xa, cô bé cận vệ vẫn đang nằm bất động giữa những cành cây gãy.
-
-Lerion nhanh chóng bước tới, nhẹ nhàng bế Kara lên.
-
-Toàn thân cô bé đầy thương tích.
-
-"Đức... vua..."
-
-Kara khó nhọc mở mắt.
-
-"Thần... xin lỗi... vì đã không thể..."
-
-"Đủ rồi."
-
-Lerion ngắt lời cô.
-
-Giọng ông trầm xuống, nhưng không hề mang theo sự trách móc.
-
-"Đừng nói nữa. Hãy nghỉ ngơi đi."
-
-Ông nhìn cô bé trong vòng tay mình.
-
-"Ngươi đã chiến đấu hết mình rồi."
-
-Sau đó, Lerion cẩn thận giao Kara cho những người trị liệu vừa chạy tới.
-
-Ông đứng nhìn họ đưa cô bé rời đi, rồi chậm rãi quay đầu về khoảng đất trống nơi vợ và con gái mình vừa biến mất.
-
-Kể từ ngày hôm ấy, gương mặt vị vua của Wavery hiếm khi còn giữ được nụ cười hiền hòa như trước.
-
----
-
-Ở một nơi khác.
-
-Lara khẽ mở mắt.
-
-"...Mẹ?"
-
-Tầm nhìn còn mờ đục của cô bé dần rõ hơn. Ngay phía trên là gương mặt quen thuộc của Mio. Từ lúc nào không hay, Lara đã được mẹ đặt nằm gối đầu lên đùi mình.
-
-"Con tỉnh rồi sao? Ngủ ngon chứ?"
-
-Mio mỉm cười, cúi xuống nhìn con gái.
-
-"Đây... đây là đâu vậy mẹ? Cha đâu ạ? Cả Kara nữa? Mọi người đâu rồi?"
-
-Hàng loạt câu hỏi bật ra khiến Mio phải nhẹ nhàng xoa đầu cô bé.
-
-"Bình tĩnh nào. Chúng ta sẽ sớm gặp lại họ thôi. Còn hiện tại... mẹ nghĩ hai mẹ con mình đã tới một thế giới khác rồi."
-
-Từ phía cửa hang, ánh nắng dịu nhẹ len vào. Tiếng chim hót xen lẫn tiếng nước chảy róc rách, hoàn toàn khác với những âm thanh quen thuộc của Chaos-Realm.
-
-"Có vẻ chúng ta đang ở trong một hang động gần bìa rừng. Mẹ đoán đây là một hòn đảo."
-
-Lara từ từ ngồi dậy. Khi vô thức siết bàn tay, cô bé mới nhận ra mình vẫn đang nắm những cành hoa cuối cùng còn sót lại từ khu rừng ở quê nhà. Các cánh hoa đã nhàu nát, một số thậm chí chẳng còn nguyên vẹn.
-
-"Vậy... con..."
-
-Mio nhìn xuống bàn tay nhỏ ấy, rồi khẽ xoa đầu Lara.
-
-"Ồ, con đã đi tìm chúng để tặng mẹ sao?"
-
-"Dạ... Cũng vì vậy mà chúng ta..."
-
-Giọng Lara nhỏ dần. Mio lập tức đưa tay véo nhẹ má con gái.
-
-"Nào, công chúa của mẹ không nên khóc nhè như thế chứ! Phải mạnh mẽ và lạc quan lên nào. Mẹ con mình nhất định sẽ tìm được đường trở về."
-
-"...Vâng!"
-
-Lara ngẩng đầu, cố nở một nụ cười.
-
-"Trước tiên thì, tìm gì đó để ăn đã nhỉ? Con đói chưa?"
-
-"Rồi ạ!"
-
-Mio chống tay đứng lên.
+Mio đứng dậy, lập tức va đầu vào trần hang thấp.
 
 _Cộc!_
 
-"Á!"
+“Á!”
 
-Đầu cô va nhẹ vào trần hang thấp ngay phía trên.
+Lara giật mình rồi bật cười. Mio ôm đầu, nhìn trần hang với vẻ bất bình.
 
-"Chà... Có vẻ nơi này hơi bé thật."
+“Chà… có vẻ cái hang này không được xây cho người cao như mẹ.”
 
-Lara bật cười khúc khích trước dáng vẻ ngượng ngùng của mẹ, rồi nhanh chóng đứng dậy đi theo cô ra ngoài.
+“Mẹ lúc nào cũng thế!”
 
----
-
-Trước mắt hai mẹ con là một hòn đảo vắng với bãi biển trải dài dưới ánh nắng ấm áp. Tiếng chim biển vang vọng trên cao, những con sóng nối tiếp nhau xô vào bờ, còn cây cối ven rừng lay động trong gió.
-
-Khung cảnh này khác xa bầu trời đỏ thẫm mà Lara đã quen nhìn thấy từ khi sinh ra.
-
-"Oa... Đẹp quá! Mẹ ơi, nơi này tuyệt thật đấy!"
-
-Mio mỉm cười, đưa tay vuốt tóc con gái.
-
-"Được rồi! Đến lúc mẹ dạy công chúa của mình vài kỹ năng sinh tồn cần thiết rồi nhỉ?"
-
-"Dạ!"
-
-Vậy là cuộc sống của hai mẹ con trên đảo hoang bắt đầu.
-
-Họ cùng săn bắt, hái lượm, tìm nguồn nước và học cách chế biến những thứ kiếm được. Dù chẳng thể biết khi nào mới được trở về Wavery, Mio vẫn luôn tìm cách giữ cho mỗi ngày trôi qua có chút gì đó vui vẻ.
-
-Thế nhưng, khi Lara đã chìm vào giấc ngủ bên đống lửa trong một đêm nọ, nụ cười trên gương mặt Mio dần biến mất.
-
-Cô khẽ vén áo, nhìn xuống vùng bụng của mình.
-
-Trên da đã xuất hiện những vết biến dạng kỳ lạ.
-
-"Mana ở nơi này... khác với Chaos-Realm..."
-
-Mio quay sang nhìn Lara đang ngủ say. Cô nhẹ nhàng đặt tay lên đầu con gái, truyền một phần Mana của bản thân sang cơ thể nhỏ bé ấy, cố gắng kìm hãm những biến đổi tương tự đang âm thầm xảy ra bên trong Lara.
-
-"Con gái của mẹ... Dù sau này có ra sao, mẹ vẫn sẽ luôn ở bên con."
-
-Cô nằm xuống cạnh Lara, kéo con vào lòng rồi khép mắt.
+“Thế nên mới cần con dẫn đường đấy, công chúa của mẹ. Nào, ra ngoài thôi. Mẹ con mình phải tìm gì đó ăn trước đã.”
 
 ---
 
-Những tháng ngày sinh tồn trên đảo vẫn tràn ngập tiếng cười, phần lớn là nhờ Mio chưa bao giờ để con gái mình phải buồn bã quá lâu.
+Bên ngoài là một hòn đảo có bãi biển trải dài, những rặng cây xanh đậm và bầu trời không còn mang sắc đỏ quen thuộc. Những con sóng lăn tăn dưới ánh nắng ấm áp, xa hơn là mặt biển tưởng như không có điểm kết thúc.
 
-Những ngày đầu, Lara vụng về trong gần như mọi việc. Từ săn cá, câu cá cho tới hái lượm và chế biến thức ăn, cô bé đều phải nhờ mẹ chỉ dẫn từng chút một.
+Lara đứng ngây ra, tạm quên cả cơn đói.
 
-"Nào, con chỉ cần kiểm soát lực, nhắm cho chuẩn và... NÉM!"
+“Oa… Đẹp quá! Mẹ ơi, nơi này tuyệt thật đấy!”
 
-Lara dồn sức phóng chiếc lao tự chế về phía mặt nước.
+Mio nhìn theo hướng con gái chỉ. Bản thân cô cũng chưa từng thấy một vùng trời như thế, nhưng nỗi lo về đường trở về vẫn nằm nguyên trong ngực.
+
+“Được rồi. Đến lúc mẹ dạy công chúa của mình vài kỹ năng sinh tồn cần thiết rồi nhỉ?”
+
+“Dạ!”
+
+Vậy là cuộc sống trên đảo bắt đầu.
+
+Hai mẹ con tìm dòng nước ngọt chảy từ vùng cao xuống, chọn một chỗ tránh mưa gần bìa rừng, đan rổ bằng dây leo và dựng nơi nhóm lửa. Những ngày đầu, Lara vụng về trong gần như mọi việc. Cô bé thường kéo chiếc lao khỏi tay quá sớm, làm đổ nước lúc mang về, hoặc quên trở cá khiến một mặt cháy đen.
+
+Mio vẫn kiên nhẫn chỉ lại.
+
+“Nào, con chỉ cần nhắm đúng chỗ, giữ tay vững một chút rồi… NÉM!”
+
+Chiếc lao tự chế lao xuống mặt nước.
 
 _Ùm!_
 
-Một con cá nhỏ bị bắt trúng.
+Khi Lara kéo lên, một con cá nhỏ mắc ở đầu lao.
 
-"Ể!? MẸ ƠI! CON LÀM ĐƯỢC RỒI!"
+“Ể!? MẸ ƠI! CON LÀM ĐƯỢC RỒI!”
 
-"YAY! Giỏi lắm, Lara!"
+“YAY! Giỏi lắm, Lara!”
 
-Mio vui vẻ vỗ tay cổ vũ, khiến cô bé cười đến mức không khép được miệng.
+Mio vỗ tay khiến Lara cười đến mức suýt đánh rơi cả con cá. Trong chiếc rổ phía sau, số cá Mio bắt được đã đủ cho hai mẹ con ăn vài bữa, nhưng cô vẫn cẩn thận đặt chiến lợi phẩm bé xíu của Lara lên trên cùng.
 
-Phía sau hai người, chiếc rổ đựng cá do Mio tự tay đan đã đầy ắp từ lúc nào. Dĩ nhiên, ngoài chiến lợi phẩm bé xíu vừa rồi của Lara, phần lớn số cá còn lại đều do Mio bắt được.
+Đến bữa, Mio hướng dẫn con trở cá trên than hồng.
 
-Đến lúc chuẩn bị bữa ăn, công chúa nhỏ lại được mẹ hướng dẫn cách nướng cá.
+“Đúng rồi, đều tay như thế. Coi chừng nóng.”
 
-"Phải, phải! Nhớ trở đều cho chín cả hai mặt nhé. Như thế mới ngon được. Con học nhanh ghê ha, công chúa của mẹ!"
+Lara thổi phù phù rồi cắn thử một miếng.
 
-Lara cẩn thận làm theo. Khi miếng cá đầu tiên hoàn thành, cô bé thổi phù phù cho nguội rồi cắn thử một miếng.
+“Ưm! Cũng ngon đấy mẹ!”
 
-"Ưm! Vị cũng không tệ!"
+“Cũng ngon thôi sao? Mẹ đã truyền hết bí quyết đấy!”
 
-Cô ngước nhìn Mio, vẻ tò mò hiện rõ trên gương mặt.
+“Thì… ngon lắm ạ!”
 
-"Mẹ ơi, trước khi làm Hoàng hậu, mẹ cũng thường ăn những món như thế này sao? Mẹ còn có cả kinh nghiệm sinh tồn và đi phiêu lưu nữa nhỉ?"
+“Thế mới đúng chứ!”
 
-Mio gật đầu, thoải mái thưởng thức phần ăn của mình.
+Lara ngồi sát lại bên mẹ.
 
-"Đúng vậy. Thế con thấy sao khi có một người mẹ chẳng ra dáng hoàng tộc chút nào?"
+“Hồi chưa làm Hoàng hậu, mẹ cũng thường sống như thế này sao? Mẹ còn biết đi săn, nhóm lửa, đủ thứ nữa…”
 
-Lara lập tức bật cười, nghiêng người dụi đầu vào lòng mẹ.
+“Ừ. Có những ngày mẹ phải kiếm đồ ăn từ sáng đến tối.” Mio bẻ một miếng cá, ngẫm nghĩ. “Thế con thấy sao khi có một người mẹ chẳng ra dáng hoàng tộc chút nào?”
 
-"Con thấy mẹ ngầu lắm! Tuyệt vời luôn ấy!"
+“Con thấy mẹ ngầu lắm! Tuyệt vời luôn ấy!”
 
-"Haha, vậy sao?"
+Mio bật cười, kéo Lara tựa vào vai mình.
 
-Mio xoa đầu con gái. Nhưng giữa chừng, một cơn đau nhói bất chợt chạy qua vùng bụng khiến nét mặt cô hơi nhăn lại.
+Dù vậy, khi con gái không nhìn, cô vẫn đưa tay chạm vào bắp chân từng trúng tên. Cơn đau đã nhẹ đi, nhưng không biến mất ngay. Có những ngày độc tố khiến tay chân Mio run rẩy; có những buổi sáng cô phải nằm lại cho đến khi cơn tê dại qua bớt.
 
-Chỉ một thoáng thôi.
+Rồi một điều kỳ lạ xảy ra. Vùng da quanh vết thương biến đổi, lớp thịt tổn thương liên tục được tái tạo. Từng ngày một, cảm giác tê do chất độc gây ra yếu dần. Cơ thể Mio đang thay đổi nhanh đến mức thứ từng làm nó suy kiệt cũng không còn tác động theo cách cũ.
 
-Mio nhanh chóng lấy lại nụ cười thường ngày.
+Đó không hẳn là một điều đáng mừng.
 
-"À, hôm nay chúng ta nghỉ sớm một chút nhé?"
+Một đêm, khi Lara đã ngủ cạnh đống lửa, Mio kéo vạt áo lên, nhìn xuống vùng bụng. Dưới da cô xuất hiện những đường vân cứng, lan rộng hơn so với hôm trước. Một móng tay cũng bắt đầu đổi màu, dày lên bất thường.
 
-"Ể? Nhưng vẫn còn sớm mà mẹ!"
+“Mana của thế giới này…”
 
-"Ngủ sớm thì mới cao lớn được như mẹ chứ! Nào, đi ngủ thôi!"
+Mio từng biết cơ thể những người sinh sống ở Chaos-Realm có khả năng thích nghi với môi trường khắc nghiệt, nhưng nơi đây khác xa quê nhà. Cơ thể cô liên tục biến đổi để tồn tại, và nếu quá trình ấy tiếp diễn không kiểm soát, cô không biết mình sẽ thành ra thế nào.
 
-"Dạaaaa..."
+Cô quay sang Lara. Đứa trẻ vẫn ngủ rất yên, nhưng đôi lúc lượng Mana quanh con cũng dao động bất thường.
 
-Lara kéo dài giọng, rồi cũng không kìm được một cái ngáp. Chẳng bao lâu sau, hai mẹ con đã nằm cạnh nhau, ôm lấy nhau trong giấc ngủ.
+Lara mang trong mình khả năng thích nghi giống mẹ, song chưa đủ kinh nghiệm kiểm soát Mana để tự bảo vệ cơ thể trước sự biến đổi. Mio đặt tay lên đầu con, truyền sang một phần Mana của mình, điều chỉnh dòng chảy trong cơ thể Lara cho ổn định hơn.
+
+Khi những dao động ấy dịu xuống, Mio thở ra.
+
+Lớp Mana vốn giúp cô tự bảo vệ mình lại mỏng đi một chút.
+
+“Mẹ sẽ cố thêm ngày mai nữa nhé.”
+
+Cô nằm xuống bên con gái, kéo tấm phủ lên cả hai.
 
 ---
 
-"Mẹ con em vẫn ổn."
+Một buổi chiều, Lara ngồi bên chỗ nghỉ và chăm chú nhìn những bông hoa mình mang từ Wavery đến. Cô đã thử vun đất, tưới nước, che nắng quá gắt, nhưng từng thân cây nhỏ vẫn dần héo rũ.
 
-Mio khẽ viết thêm một dòng vào cuốn sổ đặt trên đầu gối.
+Có những bông đã không còn đứng thẳng được. Một vài cánh hoa rơi xuống nền đất, còn bông đỏ thẫm Lara giữ riêng vẫn cố bám lấy cành, dù màu sắc đã nhạt hơn.
 
-"Mặc dù cơ thể em vẫn đang biến đổi từng ngày, nhưng Lara... con của chúng ta sẽ bình an thôi. Em dám chắc điều đó."
+“Sao chúng chẳng chịu lớn lên vậy chứ…”
 
-Đầu bút dừng lại trong chốc lát.
+Lara xới đất bằng một cành cây, rồi ngồi thừ ra.
 
-"Em cũng tìm thấy một vài thứ khá kỳ lạ trên hòn đảo này. Một trong số đó là cuốn sổ này. Nó vốn hoàn toàn trống, nên em mượn tạm để làm nhật ký."
+Mio bước đến với chiếc rổ đựng ít trái cây vừa hái.
 
-Mio khẽ bật cười, rồi tiếp tục viết.
+“Công chúa của mẹ đang phiền lòng gì thế?”
 
-"À, em còn tìm được một vòng tròn nữa. Có vẻ như nó từng được sử dụng làm điểm dịch chuyển, nhưng đã quá cũ nên không còn hoạt động. Em đang thử tái tạo lại nó để đề phòng thôi."
+“Con đã tưới nước, đổi đất rồi, nhưng hoa vẫn héo. Con muốn giữ chúng để tặng mẹ…”
 
-Cô nghiêng đầu, khóe môi cong lên thành một nụ cười nhỏ.
+“Con đã tặng mẹ rồi mà.”
 
-"Em cũng nên học cách nghĩ xa giống anh một chút nhỉ, Lerion?"
+“Nhưng chúng sắp chết hết!”
 
-Mio khép cuốn sổ lại.
+Mio đặt rổ xuống, ngồi cạnh Lara. Cô nhìn những thân cây đang cố vươn trong mảnh đất xa lạ, rồi khẽ nghiêng đầu.
 
-Đó chỉ là một cuốn sổ cũ được cô tìm thấy trên đảo, với phần bìa đã sờn và những trang giấy gần như chưa từng được sử dụng.
+“Vậy con vẫn còn một bông hoa lớn lắm đấy.”
 
-Sự tồn tại của nó, cùng những dấu vết khác mà Mio phát hiện được, khiến cô đoán rằng trước hai mẹ con, có lẽ từng có người sinh sống tại nơi này.
+“Ở đâu ạ?”
 
-Mio ngẩng đầu nhìn lên bầu trời.
+“Con có bông hoa lớn nhất là mẹ rồi đấy thôi!” Mio đặt tay lên ngực mình, ưỡn người đầy tự hào. “Lại còn là bông hoa biết nấu ăn nữa!”
 
-Đêm nay trời rất trong.
+Lara nhìn mẹ chằm chằm.
 
-Ánh trăng dịu dàng phủ xuống hòn đảo, còn vô số điểm sáng nhỏ lấp lánh giữa nền trời tối thẳm.
+Rồi cô bé phì cười.
 
-"Nơi này... đẹp thật đấy."
+“Mẹ gian quá!”
 
-Cô khẽ thì thầm.
+“Gian gì chứ? Con tìm đâu ra bông nào biết bắt cá ngon như mẹ xem!”
 
-"Những ánh sáng trên trời, những sinh vật kỳ lạ, cả những thứ em chưa từng được nhìn thấy ở quê nhà..."
+“Không có đâu ạ!”
 
-Nụ cười trên môi Mio dần nhạt đi.
+“Thế thì đi săn với bông hoa này nào!”
 
-"Chỉ là..."
-
-Cô cúi đầu.
-
-"Em ước gì mình có thể trở về."
-
-Một khoảng lặng kéo dài.
-
-"Em nhớ anh."
-
-"Em nhớ nhà."
-
-"Em nhớ mọi người quá..."
-
-Mio đưa tay lên lau những giọt nước mắt đang trực trào nơi khóe mắt.
-
-Những chiếc móng trên bàn tay cô đã bắt đầu hiện rõ hơn từng ngày.
-
-Cô nhìn chúng một lúc lâu.
-
-"...Nhưng mình phải bảo vệ con bé."
-
-Giọng Mio nhỏ đến mức gần như chỉ còn là tiếng thì thầm.
-
-"Chí ít... đó là điều duy nhất mình có thể làm được."
-
-Cô quay sang.
-
-Lara vẫn đang ngủ say ngay bên cạnh, hoàn toàn không biết mẹ mình vừa khóc.
-
-Mio chậm rãi đưa tay ra, cẩn thận vén những lọn tóc đang phủ trên gương mặt con gái sang một bên.
-
-Cô nhìn Lara thật lâu.
-
-"Lara..."
-
-Mio mỉm cười buồn.
-
-"Mẹ xin lỗi."
-
-"Mẹ không thể dạy con những lễ nghi mà một công chúa nên biết."
-
-"Mẹ cũng chẳng giỏi giao tiếp như cha con."
-
-"Mẹ không sinh ra trong một gia đình gia giáo, cũng chẳng hiểu biết đủ nhiều để có thể dạy con về Magic hay tất cả những điều thú vị ngoài kia."
-
-Giọng cô khẽ run.
-
-"Mẹ chỉ biết có từng này thôi..."
-
-Một giọt nước mắt rơi xuống.
-
-Nó chạm nhẹ vào má Lara.
-
-Cô bé khẽ cựa mình, rồi từ từ mở mắt.
-
-"...Mẹ?"
-
-Lara vẫn còn ngái ngủ, nhưng khi nhận ra gương mặt Mio, cô bé nhanh chóng tỉnh táo hơn.
-
-"Mẹ chưa ngủ sao?"
-
-Lara dụi mắt.
-
-Rồi cô bé nhìn thấy những vệt nước còn sót lại trên má mẹ.
-
-"Sao mẹ lại khóc vậy?"
-
-Mio hơi khựng lại.
-
-Nhưng chỉ một thoáng sau, cô lại nở nụ cười quen thuộc.
-
-"À... không có gì đâu."
-
-Cô nhanh chóng lau nước mắt.
-
-"Mẹ chỉ mơ thấy ác mộng một chút thôi ấy mà."
-
-Lara vẫn nhìn mẹ đầy lo lắng.
-
-Mio không giải thích thêm.
-
-Cô chỉ cúi xuống, nhẹ nhàng ôm lấy con gái.
-
-"Lara..."
-
-"...Dạ?"
-
-"Mẹ yêu con lắm."
-
-Lara im lặng vài giây.
-
-Rồi đôi tay nhỏ của cô bé cũng vòng qua lưng Mio, nhẹ nhàng vỗ về mẹ như cách Mio vẫn thường làm với mình.
-
-"Con cũng yêu mẹ lắm ạ."
-
-Mio khẽ siết vòng tay lại.
-
-Một lúc sau, hai mẹ con lại nằm xuống cạnh nhau.
-
-Lara nhanh chóng chìm vào giấc ngủ.
-
-Mio vẫn thức thêm một chút, lặng lẽ nhìn gương mặt con gái trong vòng tay mình.
-
-Nhưng lần này, không còn giọt nước mắt nào rơi xuống nữa.
-
-Rồi Mio cũng từ từ khép mắt.
-
-Hai mẹ con một lần nữa chìm vào giấc ngủ giữa tiếng sóng biển vọng lại từ phía xa.
+Mio kéo Lara đứng dậy. Hai mẹ con vừa đi vừa tranh luận xem liệu một bông hoa biết nấu ăn có đáng được gọi là hoa hay không. Phía sau họ, một cánh hoa đỏ thẫm chậm rãi tách khỏi cuống, rơi xuống lớp đất mới được Lara xới lên.
 
 ---
 
-Bảy tháng trôi qua.
+Vài tháng trôi qua.
 
-Những biến đổi trên cơ thể Mio giờ đây đã không còn có thể che giấu. Hình hài của cô lớn dần, méo mó đến mức khó nhận ra dáng vẻ vị Hoàng hậu từng đứng trong căn bếp Wavery. Cùng với sự thay đổi ấy, khả năng nhận thức của Mio cũng ngày một suy giảm.
+Lara đã biết nhóm lửa mà không làm khói bay vào mắt, biết phân biệt những loại quả có thể ăn và biết giữ chiếc lao chắc hơn trước. Đôi khi cô còn chủ động chuẩn bị thức ăn trước khi mẹ về.
 
-Thế nhưng, cô vẫn chăm sóc Lara.
+Nhưng Mio không còn di chuyển nhẹ nhàng như những ngày đầu. Móng tay cô dài ra, lớp da nơi cánh tay và vùng bụng trở nên cứng, sần sùi. Một số phần trên cơ thể đổi hình dạng nhanh đến mức cô phải mất thời gian làm quen với cách cử động mới.
 
-Vẫn bảo vệ con bé, vẫn để con nằm cạnh mình mỗi đêm. Ngay cả khi bàn tay đã trở nên khổng lồ, đầy những móng vuốt sắc nhọn, Mio vẫn luôn cố cử động thật nhẹ mỗi lần xoa đầu con gái.
+Cô vẫn thường dùng những chiếc móng ấy để làm sạch cá. Chúng sắc hơn dao đá nhiều, dù nếu không cẩn thận, chỉ một động tác bất ngờ cũng có thể làm rách thứ cô không định chạm vào.
 
-Lara cũng chẳng còn là công chúa nhỏ vụng về của những ngày đầu. Cô bé đã học được cách tự tìm thức ăn, dựng chỗ nghỉ, vận dụng những gì mẹ từng dạy để sinh tồn. Ngoài những việc ấy, Lara còn không ngừng tìm cách hóa giải sự biến đổi của Mio.
+Tối nọ, Lara ngồi bên cạnh khi Mio đang cắt những miếng thịt cá thành phần nhỏ. Đôi mắt cô bé dõi theo bàn tay mẹ — bàn tay trước kia vẫn véo má, buộc tóc và nắm tay cô trên đường về cung.
 
-Nhưng mọi nỗ lực đến lúc này đều chưa mang lại kết quả.
+“Mẹ…”
 
-"Mẹ ơi! Hôm nay con săn được rất nhiều cá, còn hái được cả đống trái đỏ ngon nữa này!"
+“Hửm?”
 
-Lara đặt thành quả của mình xuống trước mặt mẹ.
+“Mẹ có đau không ạ?”
 
-Một bàn tay to lớn, phủ đầy những móng vuốt, chậm rãi đưa lên rồi khẽ đặt lên đầu cô bé.
+Mio ngừng tay.
 
-Thật nhẹ.
+“Thỉnh thoảng thôi. Mẹ vẫn làm được mọi việc đấy chứ.”
 
-"Chúng ta sẽ ổn thôi mà. Chúng ta vẫn có nhau, mẹ nhỉ?"
+“Nhưng bàn tay mẹ… cả người mẹ nữa…”
 
-Mio đáp lại bằng vài tiếng gầm gừ khe khẽ. Bàn tay ấy vẫn tiếp tục vuốt tóc Lara như một thói quen chưa từng thay đổi.
+Lara cúi đầu. Cô bé đã muốn hỏi điều này từ nhiều ngày trước.
 
-"Biến động Mana..."
+“Chúng ta thật sự có thể chữa được không? Mẹ cứ thay đổi mãi. Con sợ một ngày nào đó…”
 
-Lara cúi nhìn hai bàn tay của chính mình. Những móng vuốt nhỏ đã dần mọc ra từ đầu ngón tay, phía sau cơ thể cô bé cũng xuất hiện một chiếc đuôi nhọn.
+Giọng cô bé nghẹn lại.
 
-Cô không hiểu tại sao mình lại biến đổi chậm hơn mẹ đến vậy.
+“Con sợ mẹ sẽ không còn nhận ra con nữa.”
 
-Nhìn cơ thể khổng lồ trước mặt, Lara im lặng một lúc rồi rúc vào lòng Mio.
+Nước mắt rơi xuống mu bàn tay Lara.
 
-"Mọi chuyện... sẽ ổn thôi."
+Mio đặt con cá sang một bên, rửa sạch đầu ngón tay, rồi dùng bàn tay đã mọc móng cứng cẩn thận nâng cằm con gái lên. Cô nghiêng móng sang một bên để phần da mềm chạm vào má Lara, nhẹ nhàng gạt nước mắt.
 
-Cô bé khép mắt, thiếp đi bên cạnh mẹ.
+“Mọi chuyện chắc chắn sẽ ổn thôi.”
+
+“Nhưng mẹ đã nói thế từ lúc mới tới đây…”
+
+“Ừ.” Mio nhìn con gái. “Và mẹ vẫn muốn tin điều đó.”
+
+Cô đưa cánh tay còn lại qua vai Lara, kéo cô bé ngồi sát vào mình. Lara tựa đầu lên phần vai cứng hơn trước, lắng nghe tiếng tim mẹ đập bên trong lồng ngực.
+
+Mio bắt đầu hát ru.
+
+Đó là giai điệu cô vẫn hát khi Lara còn nhỏ, vào những đêm cô bé bướng bỉnh không chịu ngủ. Giọng Mio đôi khi bị ngắt bởi cơn đau, nhưng bà vẫn hát hết đoạn cuối.
+
+Mí mắt Lara nặng dần.
+
+“Mẹ…”
+
+“Mẹ nghe.”
+
+“Mai mẹ sẽ gọi con dậy để ăn chứ ạ?”
+
+“Đương nhiên rồi, con yêu.”
+
+“Đừng quên nhé…”
+
+“Không quên đâu.”
+
+Lara ngủ thiếp đi.
+
+Mio giữ nguyên tư thế, để con gái nằm yên trên vai mình. Khi ngước lên, cô nhìn thấy bầu trời đầy sao của thế giới xa lạ. Rồi cô cúi xuống hôn lên mái tóc Lara, rất nhẹ, để những chiếc móng không chạm vào con.
+
+Đêm ấy, Mio ngồi như thế thêm rất lâu.
+
+---
+
+Trong cuốn sổ cũ nhặt được trên đảo, Mio viết những dòng gửi cho người chồng không biết bao giờ mới có thể đọc được.
+
+_“Mẹ con em vẫn ổn. Lara đã tự bắt được cá, còn biết làm vài món ăn nữa. Con bé lớn nhanh thật đấy, Lerion.”_
+
+Cô dừng bút, nhìn bàn tay phải. Những móng vuốt đã khiến việc cầm bút khó khăn hơn; có vài nét chữ bị lệch vì không điều khiển nổi lực tay.
+
+_“Cơ thể em vẫn đang thay đổi. Em đã thử giữ Mana của Lara ổn định và có vẻ con bé đang thích nghi khá hơn. Nhưng mỗi lần làm thế, em lại khó duy trì lớp Mana bảo vệ chính mình.”_
+
+_“Chất độc từ mũi tên gần như không còn tác dụng nữa. Em từng nghĩ đó là tin tốt. Chỉ tiếc cơ thể em đang trở thành một thứ khác nhanh hơn em có thể hiểu.”_
+
+Mio ngừng một lúc rồi viết tiếp.
+
+_“Em tìm thấy một vòng tròn dịch chuyển cũ giữa những phiến đá trên đảo. Gần đó có ký tự và chỉ dẫn bằng ngôn ngữ Chaos-Realm. Có lẽ trước chúng ta, đã từng có ai từ quê nhà tới đây.”_
+
+_“Em không biết họ là ai, cũng không biết vòng tròn này được dùng cho việc gì. Một số bộ phận đã hỏng, nhưng em nghĩ có thể khôi phục phần nhận Mana và cố định điểm đến. Em sẽ thử. Biết đâu có ngày chúng ta cần một con đường dự phòng.”_
+
+_“Em cũng nên học cách nghĩ xa giống anh một chút nhỉ?”_
+
+Mio bật cười một mình. Nhưng khi nhìn thấy bóng mình trên mặt nước, nụ cười ấy dần biến mất.
+
+Cô ngồi dưới ánh trăng, đọc lại những dòng chữ vừa viết. Giữa các trang sổ đã có những ghi chú về sự biến đổi của cơ thể, về cách Lara phản ứng với Mana và những lần Mio thử điều chỉnh dòng chảy trong người con.
+
+Mio hiểu rằng bản thân có thể không đủ thời gian tìm ra cách chữa trị. Cô không viết điều đó vào trang đầu, nơi Lara có thể vô tình mở ra. Thay vào đó, cô dành một trang phía sau ghi lại những gì mình biết, cùng những lời dặn phòng khi một ngày con gái phải tự sống mà không có mẹ ở bên.
+
+“Em ước gì mình có thể về nhà,” Mio nói với khoảng trời vắng. “Em nhớ anh. Nhớ mọi người quá…”
+
+Cô lau mắt rồi quay nhìn chỗ Lara đang ngủ.
+
+“Mẹ xin lỗi, Lara.”
+
+Mio từng lo mình không đủ hiểu biết để dạy con những nghi lễ một công chúa nên biết, không giỏi bàn chuyện quốc gia như Lerion, cũng không có những cuốn sách hay người thầy ở hoàng cung để giúp con học Magic. Giờ đây, ngay cả những điều cô biết, cô cũng chưa chắc còn đủ thời gian truyền lại.
+
+Một giọt nước mắt rơi xuống, chạm vào má Lara.
+
+“…Mẹ?”
+
+Cô bé cựa mình, mở mắt.
+
+“Sao mẹ chưa ngủ? Mẹ khóc à?”
+
+Mio lau nhanh gò má.
+
+“À… mẹ vừa mơ thấy ác mộng một chút thôi.”
+
+“Nhưng mẹ đang ngồi viết mà?”
+
+“Thì…” Mio khựng lại, rồi thở dài. “Mẹ nhớ nhà.”
+
+Lara ngồi dậy, vòng tay ôm lấy eo mẹ, cẩn thận tránh những vùng da đã biến dạng.
+
+“Con cũng nhớ. Nhưng con vẫn ở đây với mẹ mà.”
+
+Mio đặt cuốn sổ sang một bên, ôm con gái vào lòng.
+
+“Mẹ yêu con lắm.”
+
+“Con cũng yêu mẹ lắm ạ.”
+
+Lần này, Mio không tìm cớ để giấu nước mắt nữa. Cô chỉ giữ con bên mình cho đến khi Lara ngủ lại.
+
+---
+
+Việc Lara dần thích nghi với Mana của thế giới mới giúp cô bé có thể thử những kỹ thuật mẹ từng sử dụng để ổn định cơ thể. Mio chỉ từng bước, kiên nhẫn giải thích cách cảm nhận dòng Mana, cách dẫn nó đi đúng hướng và giữ cho nó không tản ra trước khi có tác dụng.
+
+Nhưng hiểu lời mẹ nói không đồng nghĩa với việc thực hiện được.
+
+Ngày đầu tiên, Mana Lara vừa tập trung đã tản mất. Những ngày sau, cô giữ được lâu hơn một chút, nhưng vẫn không đủ để làm dịu phần cơ thể đang biến đổi của Mio.
+
+“Thử lại nào,” Mio nói.
+
+“Con đã thử rồi!”
+
+“Vậy nghỉ một lát, rồi thử tiếp.”
+
+“Nhưng mẹ đâu còn nhiều thời gian!”
+
+Câu nói bật ra khiến cả hai im lặng.
+
+Lara cúi mặt. Cô bé biết mình vừa lớn tiếng, nhưng càng cố nén, đôi môi càng run. Sau gần hai tuần tập luyện, cô vẫn chưa làm được điều mẹ có thể thực hiện chỉ bằng một cái chạm tay.
+
+“Con xin lỗi…”
+
+Cô cắn chặt môi đến đau. Điều khiến Lara tức giận nhất không phải bài học quá khó, mà là cô chẳng biết phải trút cơn bất lực lên ai. Bàn tay cô đã mọc những chiếc móng sắc hơn, sau tai có những mảng da lạ, vậy mà khả năng kiểm soát Mana vẫn kém xa điều cô cần.
+
+Mio đưa tay ra.
+
+“Lại đây nào.”
+
+Lara chần chừ rồi bước tới. Mẹ ôm cô vào ngực. Lớp da nơi ấy đã thô ráp, cứng như vảy, nhưng khi áp tai lên, Lara vẫn nghe thấy nhịp tim quen thuộc.
+
+_Thình. Thịch._
+
+Cô bé nhắm mắt, thở chậm lại theo tiếng đập ấy.
+
+“Con sẽ học được,” Lara nói, giọng còn nghẹn. “Nếu không tự chữa được, con sẽ tìm người giúp. Con không bỏ cuộc đâu.”
+
+“Ừm.”
+
+Mio vuốt tóc con.
+
+“Vậy mẹ sẽ dạy con những gì mẹ còn nhớ.”
+
+---
+
+Bảy tháng trôi qua kể từ ngày hai mẹ con đến hòn đảo.
+
+Cơ thể Mio lúc này không thể che giấu sự biến đổi nữa. Những mảng da cứng lan rộng, tứ chi lớn dần, vóc dáng thay đổi đến mức khó nhận ra người phụ nữ từng đứng trong căn bếp Wavery. Cùng với đó, giọng nói của cô trở nên khàn đục; những câu trả lời ngắn cũng ngày một khó khăn.
+
+Có những buổi sáng Lara gọi, Mio phải mất rất lâu mới quay đầu. Có lần cô cầm con cá trong tay mà không nhớ phải làm gì với nó. Lara bước đến, chạm vào cổ tay mẹ và nhẹ nhàng hướng dẫn lại động tác từng được chính mẹ dạy.
+
+Mio nhìn con gái, cố phát ra một tiếng đáp không tròn lời. Sau đó, cô đặt bàn tay khổng lồ lên đầu Lara.
+
+Nhẹ đến mức những đầu móng gần như không chạm da.
+
+Lara bắt đầu chủ động săn bắt, nấu ăn, sửa chỗ ngủ và chăm sóc mẹ. Cô thử lại những cách điều chỉnh Mana đã học, ghi nhớ cả những lần thất bại, nhưng không thể làm quá trình biến đổi của Mio dừng lại.
+
+Một hôm, cô mang về chiếc rổ đầy cá cùng mấy trái đỏ chín mọng.
+
+“Mẹ ơi! Hôm nay con săn được nhiều lắm này!”
+
+Mio quay lại. Một bàn tay phủ vảy từ từ đưa lên, vuốt mái tóc con gái. Từ cổ họng bà chỉ phát ra vài tiếng gầm nhỏ.
+
+“Chúng ta sẽ ổn thôi mà. Chúng ta vẫn có nhau, mẹ nhỉ?”
+
+Bàn tay ấy tiếp tục vuốt tóc Lara.
+
+Cô bé nhìn xuống đôi tay mình. Móng đã dài và sắc, hàm răng cũng khác trước; phần da quanh một bên tai xuất hiện những lớp vảy sần sùi. Dù cơ thể đang thích nghi ổn định hơn, những thay đổi ấy không biến mất.
+
+Lara ngồi xuống, dựa vào phần thân khổng lồ của mẹ.
+
+Một lúc sau, cô thì thầm:
+
+“Mọi chuyện… sẽ ổn thôi.”
 
 ---
 
 Rồi thời gian tròn một năm.
 
-Vẫn không có dấu hiệu nào cho thấy những người ở Wavery sẽ tìm được hai mẹ con. Sự biến đổi trên cơ thể Lara tuy chậm nhưng vẫn tiếp diễn. Cô biết nếu cứ ở lại hòn đảo này, cả hai có lẽ sẽ không bao giờ tìm được cách chữa trị.
+Mio hầu như không còn nói được. Những phản ứng còn sót lại chủ yếu là bản năng, thói quen và sự chú ý dành cho Lara. Nhưng Lara vẫn nhận ra mẹ qua những việc rất nhỏ: bà luôn quay đầu khi nghe cô gọi, luôn nhường chỗ nằm khô ráo hơn và chưa lần nào thôi che chắn cho con khi có thú dữ tới gần.
 
-Lara quyết định phải rời đi.
+Cơ thể Lara tiếp tục thay đổi, dù chậm hơn mẹ rất nhiều. Nếu hai mẹ con cứ ở lại đảo, cô bé không biết liệu mình có thể tìm được cách chữa trị trước khi quá muộn hay không.
 
-Dù không biết bên ngoài có gì, dù chuyến đi có thể rất nguy hiểm, cô vẫn muốn thử tìm một nơi có người đủ khả năng giúp mẹ và bản thân mình.
+Lara đã đọc đi đọc lại những ghi chép Mio để lại. Cô biết mẹ từng thử sửa vòng dịch chuyển cũ và chuẩn bị một đường trở về đảo, nhưng những phần còn thiếu của cấu trúc ấy vượt ngoài khả năng hiện tại của Lara. Nó cũng chưa bao giờ đủ để mở đường về Wavery.
 
-Mio dường như hiểu được mong muốn ấy.
+Cô bé gấp cuốn sổ, ngồi thật lâu bên mẹ.
 
-Cô đã không còn minh mẫn như trước, nhưng mối liên kết máu mủ giữa hai mẹ con vẫn giúp cô cảm nhận được phần nào suy nghĩ và cảm xúc của Lara.
+“Mẹ… con muốn đi tìm người giúp.”
 
-Và thế là, cô bé ngồi trên vai mẹ khi Mio chậm rãi bơi qua đại dương mênh mông.
+Mio nghiêng đầu. Trong đôi mắt đã khác xưa, Lara không tìm thấy một lời đáp rõ ràng. Nhưng bà cúi thấp người cho cô trèo lên, như đã từng làm trong những lần đưa con qua vùng nước sâu quanh đảo.
 
-Đích đến của họ dần hiện ra ở phía xa.
+Lara bám vào phần vảy trên vai mẹ.
+
+“Con sẽ không đi xa mẹ đâu.”
+
+Mio bước xuống nước.
+
+Và chuyến đi bắt đầu.
+
+---
+
+Biển sâu hơn Lara từng hình dung.
+
+Mio không bơi trên mặt nước như những con cá hai mẹ con vẫn bắt. Cơ thể ngày càng nặng và rắn chắc khiến bà khó giữ thăng bằng khi nổi. Thay vào đó, Mio đi từng bước trên nền đá dưới đáy biển, để sức nặng kéo mình xuống sau mỗi lần trồi lên.
+
+Thuộc tính Mana thiên về nước và băng vẫn còn hoạt động trong bà, dù ý thức đã chẳng đủ tỉnh táo để sử dụng chúng như trước. Nước quanh Lara tách ra thành một vùng không khí nhỏ được bao bọc bởi một lớp Mana mỏng. Áp lực của đại dương bị giữ ở bên ngoài, còn cô bé có thể ngồi trên phần vai rộng của mẹ mà hít thở.
+
+Nhưng không khí trong vùng ấy không phải vô tận.
+
+Khi Lara bắt đầu thấy ngột ngạt, Mio dừng bước. Bà bám vào những mỏm đá, dùng phần cơ thể đang biến đổi để đẩy mình lên dần. Có lúc phải mất rất lâu họ mới lên tới mặt nước. Mio trồi lên giữa sóng, tạo lại vùng không khí quanh con rồi để cơ thể từ từ chìm xuống.
+
+Những lần đầu, động tác vụng về đến mức Lara phải ôm chặt phần vảy trên cổ mẹ. Có khi Mio va vào đá, khiến cả vùng nước xung quanh đục ngầu. Nhưng sau mỗi chặng đường, cơ thể bà lại thay đổi: những phần chịu áp lực lớn trở nên dày và cứng hơn, những cử động từng khó khăn dần bớt lúng túng.
+
+Họ đi qua những mảng đá nhọn, những khe sâu và những vùng nước tối tới mức Lara không nhìn thấy bàn tay mình nếu rời khỏi vùng sáng do Mana tạo nên. Có một đoạn đáy biển đứt gãy, Mio phải men theo vách đá rất lâu mới tìm được chỗ có thể xuống thấp hơn.
+
+Lara không biết đã qua bao nhiêu đêm. Khi trồi lên mặt nước để lấy không khí, đôi khi cô thấy những vì sao; lúc khác, bầu trời chỉ toàn mây xám và sóng cao.
+
+“Mẹ, mình đang đi đâu vậy?”
+
+Mio đáp bằng một tiếng gầm trầm, gần như bị nước nuốt mất.
+
+Cô bé ôm lấy mẹ chặt hơn.
+
+Vài ngày sau, Mio đột nhiên đổi hướng. Bà dừng lại giữa một khoảng đá bằng phẳng, ngẩng đầu về phía một luồng nước khác rồi bắt đầu đi nhanh hơn. Có thứ gì đó ở xa đã khiến bản năng của bà chú ý.
+
+Lara nheo mắt nhìn qua vùng nước tối. Cô chưa thấy gì, nhưng lần đầu tiên sau nhiều ngày, mẹ đang hướng tới một nơi có dấu hiệu sinh vật sống.
+
+Khi cả hai trồi lên lần nữa, trước mặt họ không còn là đường chân trời trống rỗng.
+
+Có đất liền.
 
 **[[Seawind]].**
 
 ---
 
-Mọi chuyện không diễn ra như Lara hy vọng.
+Lara kéo chiếc áo choàng lên che mái tóc và phần tai đã bị biến đổi. Cô không muốn những người xa lạ nhìn thấy móng tay, hàm răng sắc hay các mảng vảy trên da rồi sợ hãi. Dù biết mình đang ngồi trên vai một sinh vật khổng lồ còn đáng sợ hơn, cô vẫn cố chỉnh lại mũ trùm cho ngay ngắn.
 
-Những sinh vật nơi đây vừa nhìn thấy hình hài khổng lồ của Mio đã lập tức hoảng sợ. Lara cố gắng giải thích, cố nói rằng hai mẹ con chỉ đang tìm kiếm sự giúp đỡ, nhưng những lời cô nói dường như chẳng thể đến được với họ.
+“Mẹ, ở đây có người. Chắc họ sẽ giúp được chúng ta…”
 
-Khác biệt giữa các chủng loài và ngôn ngữ đã khiến việc giao tiếp trở thành một trở ngại quá lớn.
+Mio tiến gần bờ. Những tiếng gầm trầm vang từ cổ họng bà mỗi khi có sóng lớn va vào thân mình, nhưng Lara vẫn kiên nhẫn vỗ nhẹ lên phần vai cứng.
 
-"...Không thể giao tiếp được."
+Trên bờ, những người đầu tiên nhìn thấy bà lập tức dừng mọi việc đang làm.
 
-Lara cắn chặt môi, nhìn về phía mẹ.
+Một sinh vật khổng lồ, phủ những lớp da cứng và móng vuốt, đang từ biển tiến vào nơi họ sinh sống. Trên cao, một bóng người nhỏ trùm kín đầu ngồi giữa những mảng vảy, đôi lúc cúi xuống như đang ra hiệu cho con quái vật.
 
-"Chúng ta không nên ở đây lâu đâu mẹ. Đi th—"
+Tiếng hô hoán vang lên.
 
-Cô bé chưa kịp nói hết câu thì Mio bất ngờ gầm lên.
+“Xin chờ đã!” Lara gọi, vẫy tay. “Chúng tôi không muốn làm hại ai! Làm ơn, mẹ tôi cần được giúp đỡ!”
 
-Bà đã cảm nhận được sát ý đang hướng về phía Lara từ những sinh vật phía dưới.
+Không ai trả lời bằng thứ tiếng cô hiểu.
 
-Mọi thứ nhanh chóng trở nên hỗn loạn. Giữa những chuyển động dữ dội của cơ thể mẹ, Lara mất thăng bằng và ngã khỏi vai Mio, rơi xuống vùng nước gần đó.
+Những người trên bờ hét với nhau, chỉ tay lên sinh vật khổng lồ, rồi chỉ vào bóng người trùm đầu trên vai nó. Lara cố lặp lại lời giải thích, ra dấu rằng mình không có vũ khí và chỉ muốn nói chuyện. Nhưng khoảng cách, tiếng sóng và sự khác biệt ngôn ngữ khiến mọi nỗ lực đều trở nên vô nghĩa.
 
-"MẸ! KHÔNG ĐƯỢC! Chúng ta nên rời đi thôi! MẸ!"
+Trong số những người chạy tới có vài mạo hiểm giả. Một người còn khá trẻ rút cung, trông như định bước ra trước đám đông để lập công. Thế rồi Mio cúi đầu, thân hình khổng lồ đổ bóng lên mặt nước, khiến tay hắn run lên.
 
-Lara cố bám lấy mẹ, nhưng Mio đã lao vào phá hủy những thứ xung quanh. Những tiếng gầm cùng các đợt tấn công nối tiếp nhau khiến khu vực ven biển chìm trong hỗn loạn.
+Hắn lùi lại.
 
-Lara chỉ có thể bất lực nhìn theo.
+Rồi quay người bỏ chạy.
 
-Cô bé biết mẹ mình rất mạnh. Với sức mạnh hiện tại, Mio thậm chí có thể hủy diệt cả nơi này nếu mọi chuyện tiếp tục leo thang.
+Những người khác bắt đầu đưa dân cư vào nơi trú ẩn, mang vũ khí ra bảo vệ đường ven biển. Lara nhìn cảnh ấy mà cuống quýt.
 
-"Mẹ..."
+“Mẹ, có lẽ chúng ta không nên đến gần hơn. Đi thôi, mẹ. Mình tìm nơi khác…”
 
-Nước mắt Lara rơi xuống, hòa vào làn nước biển mặn chát.
+Mio dừng bước. Bà nhìn xuống con gái, chưa kịp quay người thì một âm thanh rất nhỏ vang lên từ phía những tảng đá xa bờ.
 
-Cô thật sự ước mình có thể lạc quan như mẹ. Ước rằng chỉ cần cố thêm một chút, hai mẹ con vẫn có thể cùng nhau vượt qua chuyện này, giống như suốt một năm qua.
+_Vút!_
 
-Mio vẫn đang điên cuồng tàn phá mọi thứ mà bà cho rằng có thể gây nguy hiểm cho Lara.
+Người mạo hiểm giả ban nãy không thật sự bỏ đi. Hắn đang nấp ở một góc xa, nơi nỗi sợ đã dịu bớt nhưng cảm giác nhục nhã vì chạy trốn vẫn còn nguyên. Từ chỗ ấy, hắn giương cung nhắm vào bóng người trùm đầu trên vai con quái vật.
 
-Những đợt phản công từ phía Seawind cũng ngày một dữ dội hơn. Magic, vũ khí và vô số đòn tấn công liên tục trút xuống cơ thể khổng lồ của Mio.
+Mũi tên bay tới quá nhanh để Lara kịp né.
 
-Đôi khi, một vài đòn đánh lệch khỏi mục tiêu, vô tình lao về phía Lara.
+Nó đập vào lớp vảy cứng đã mọc lan từ tai xuống một bên gò má cô bé, bật ra và rơi xuống biển. Nhưng lớp vảy nứt vỡ, một mảnh nhỏ bong khỏi da, để lại vệt máu đỏ chảy xuống cổ.
 
-Nhưng lần nào cũng vậy.
+Lara đưa tay sờ lên mặt, ngây người nhìn máu trên đầu ngón tay.
 
-Mio lập tức chắn trước mặt con gái.
+“Mẹ…?”
 
-Dù ý thức đã chẳng còn được như trước, cơ thể bà vẫn vô thức lựa chọn bảo vệ Lara trước tiên.
+Mio đã cảm nhận được sát ý từ trước khi mũi tên chạm vào con. Giờ đây mùi máu của Lara khiến bà ngẩng phắt đầu, tiếng gầm bùng ra như một cơn sóng đánh thẳng vào bờ.
 
-"Mẹ..."
+“KHÔNG, MẸ!”
 
-Lara nhìn người mẹ đang che chắn cho mình, giọng run lên.
+Lara bám chặt lấy vai bà.
 
-"Mẹ vẫn tiếp tục bảo vệ con..."
+“Con không sao! Mẹ, con không sao mà!”
 
-Hai bàn tay cô bé siết chặt.
+Nhưng Mio không còn đủ tỉnh táo để nghe rõ. Trong nhận thức rời rạc của bà, những sinh vật phía trước đã hướng vũ khí về phía Lara và làm con gái bị thương. Thế là đủ.
 
-"Đáng lẽ... nếu không phải vì con..."
+Bà lao tới.
 
-"Nếu mọi chuyện không phải do con thì..."
+Sóng nước cuộn lên, hất văng những vật dụng gần bờ. Các công trình ven biển rung chuyển dưới sức nặng của cơ thể Mio. Tiếng kêu cứu vang khắp nơi, rồi các đợt Magic và mũi tên từ những người đang bảo vệ khu dân cư bắt đầu trút xuống bà.
 
-Tiếng hét.
+Giữa những chuyển động dữ dội, Lara mất thăng bằng, rơi khỏi vai mẹ xuống vùng nước bên dưới.
 
-Tiếng khóc.
+“MẸ! DỪNG LẠI ĐI!”
 
-Tiếng gầm rú của Mio.
+Cô cố bơi tới, nhưng Mio đã quay sang một hướng khác, nơi những người cầm vũ khí đang tập trung. Bà đánh bật các đòn tấn công, phá hủy những thứ chắn đường. Một số người bị sóng và mảnh vỡ hất ngã. Những người khác vừa dìu nhau rút lui vừa tiếp tục chiến đấu, bởi phía sau họ vẫn còn nhà cửa và gia đình.
 
-Tiếng Magic va chạm, tiếng gió rít và những con sóng dữ dội đập vào bờ.
+Lara cố gọi, cố ra hiệu, cố tìm cách khiến mẹ hiểu rằng không phải tất cả đều đang săn đuổi hai mẹ con.
 
-Tất cả hòa lẫn vào nhau, tạo thành một thứ âm thanh hỗn loạn đến mức Lara gần như không còn phân biệt được bất cứ điều gì.
+Vô ích.
 
-Giữa mớ âm thanh hỗn loạn ấy, Lara vẫn nghe thấy tiếng hét của những sinh vật nhỏ bé phía bờ biển.
+Một đòn Magic chệch mục tiêu lao về phía cô. Mio lập tức xoay người chắn trước mặt con gái, để luồng sáng đánh vào lớp vảy trên lưng.
 
-Họ đang cố gắng bảo vệ nơi mình sinh sống.
+Rồi thêm một lần nữa.
 
-Mio gầm thét đáp lại.
+Và thêm một lần nữa.
 
-Lara không hiểu ngôn ngữ của họ. Mio càng không.
+“Mẹ…”
 
-Nhưng tiếng khóc thì chẳng cần ngôn ngữ để nhận ra.
+Lara thấy những vết thương xuất hiện trên thân hình khổng lồ. Phần lớn nhanh chóng khép lại nhờ dòng Mana vẫn cuộn chảy trong cơ thể bà. Nhưng mỗi lần một đòn đánh hướng về phía Lara, Mio đều quay sang che chắn, bất kể bà đang giao chiến ở đâu.
 
-Có những cơ thể nhỏ bé bị các đợt va chạm hất tung đi.
+“Đáng lẽ… nếu không phải vì con…”
 
-Dẫu vậy, họ vẫn gượng dậy.
+Cô bé siết bàn tay đầy móng vuốt. Vết máu trên má đã bắt đầu khô, nhưng cảm giác nóng rát vẫn còn đó.
 
-Vẫn tiếp tục chiến đấu.
+Trên bờ, một đứa trẻ khóc gọi người thân. Có người cố kéo một người bị thương ra khỏi đống gỗ đổ. Những tiếng hét vang lên bằng thứ ngôn ngữ Lara không hiểu, nhưng cô biết họ đang sợ hãi.
 
-"Tại sao cơ chứ..."
+Họ đang bảo vệ nơi mình sống.
 
-Cô bé cúi đầu, nước mắt không ngừng rơi.
+Mẹ cũng đang bảo vệ cô.
 
-"Cha..."
+Và không ai nghe thấy lời cầu xin của ai.
 
-"Kara..."
+“Cha…” Lara thì thầm. “Kara…”
 
-"Mọi người đang ở đâu rồi...?"
+Cô nhìn về phía những con sóng trắng xóa, nước mắt rơi xuống hòa vào nước biển.
 
-"Mọi người..."
+“Ước gì mọi người ở đây…”
 
-Lara lại ngẩng lên.
+Không có câu trả lời nào từ bờ biển. Chỉ có tiếng va chạm của Magic, tiếng gầm của Mio và tiếng người gọi nhau chạy khỏi vùng chiến đấu.
 
-Mio vẫn đang gầm thét giữa chiến trường.
+Lara ngẩng lên. Mẹ vẫn đang ở đó, bên trong hình hài đã hoàn toàn khác xưa. Những phần vảy cứng bảo vệ lồng ngực bà rung lên theo từng nhịp thở.
 
-Những vết thương liên tục xuất hiện trên cơ thể khổng lồ ấy, rồi nhanh chóng khép lại dưới dòng Mana đang cuộn trào bên trong.
-
-Và giữa tất cả sự hỗn loạn đó—
-
-Lara vẫn cảm nhận được một thứ.
-
-Ở sâu bên trong lồng ngực Mio.
+Giữa hỗn loạn, Lara nghe thấy một âm thanh khác — rất thấp, rất quen.
 
 _Thình._
 
 _Thịch._
 
-Trái tim của mẹ cô vẫn đang đập.
+Trái tim của Mio vẫn đập.
 
-Lara biết nhịp tim ấy.
+Ngày trước, Lara thường ngủ quên trên vai mẹ khi nghe hát ru. Sau này, dù cơ thể mẹ đã biến đổi, cô vẫn tựa vào lồng ngực ấy để bình tĩnh lại mỗi khi tập Magic thất bại.
 
-Ngày trước, mỗi khi cô rúc vào lòng mẹ, áp tai lên ngực Mio rồi chìm vào giấc ngủ, cô vẫn luôn nghe thấy chính âm thanh này.
+Vẫn là nhịp tim đó.
 
-Vẫn là nhịp tim ấy.
+Vẫn là người đã hứa sẽ gọi cô dậy ăn sáng.
 
-Vẫn là người mẹ ấy.
-
-Mio vẫn đang ở đó.
-
-Nhưng mà...
-
-"Mẹ..."
+“Mẹ…”
 
 Lara bật khóc.
 
-"Làm ơn... dừng lại đi."
+“Làm ơn dừng lại đi!”
 
-Cô nhìn về phía những người đang chiến đấu ở Seawind.
+Cô nhìn về phía bờ biển, nơi những người dân vẫn đang chống trả.
 
-"Xin mọi người..."
+“Xin mọi người… xin đừng đánh nhau nữa!”
 
-"Làm ơn dừng lại đi..."
+Giọng cô tan giữa tiếng gió.
 
-Không ai nghe được cô.
+“LÀM ƠN ĐI MÀ—”
 
-Hoặc có lẽ, giữa chiến trường hỗn loạn này, chẳng còn ai có thể nghe được nữa.
-
-"LÀM ƠN ĐI MÀ—"
-
-Nhưng rồi—
+Một âm thanh sắc lạnh cắt ngang lời cầu xin.
 
 _Vút!_
 
-Một thứ gì đó bất ngờ xuyên thẳng vào cơ thể khổng lồ của Mio.
+Lara không kịp nhìn thấy đường bay. Một đòn đánh xuyên qua lớp phòng thủ cứng dày ở trước ngực Mio, ngay tại nơi những đợt tấn công trước đó chưa thể chạm tới. Mặt nước phía sau bà bắn tung lên.
 
-Không có đường bay nào mà Lara kịp nhìn rõ. Cô chỉ thấy mặt nước phía sau mẹ bắn tung lên dưới tác động của cú đánh, rồi cơ thể Mio chao đảo dữ dội.
+Cơ thể Mio chao đảo.
 
-Vết thương ấy không còn khép lại như những lần trước.
+Những vết thương khác vẫn đang tự khép lại, nhưng vết thương ở giữa ngực không hồi phục. Dòng Mana đang duy trì thân thể khổng lồ đột ngột rối loạn. Nơi sâu nhất trong lồng ngực, phần lõi gắn với nhịp sống của bà đã bị xuyên thủng.
 
-Giữa những đợt tấn công vẫn đang tiếp diễn từ phía bờ biển, Mio dần không thể trụ vững. Cuối cùng, cơ thể khổng lồ của bà đổ gục xuống.
+_Thình…_
 
-"...Mẹ?"
+Lara chờ nhịp tiếp theo.
 
-Lara chết lặng trong thoáng chốc.
+Nó không đến.
 
-"MẸ!"
+“Mẹ…?”
 
-Cô lao đến, cố chạm vào khuôn mặt của Mio. Dẫu hình hài ấy đã biến dạng nặng nề đến mức chẳng còn giống người mẹ trong ký ức, Lara vẫn nhận ra bà.
+Mio khuỵu xuống giữa làn nước. Những đợt tấn công quanh bà chậm dần khi thân hình khổng lồ đổ gục. Lara lao tới, cố ôm lấy phần khuôn mặt giờ đây còn lớn hơn cả người mình.
 
-"Lara..."
+“MẸ!”
 
-Một giọng nói yếu ớt vang lên.
+Dù vảy, móng vuốt và những lớp da cứng đã khiến gương mặt ấy gần như không còn giống người mẹ trong ký ức, Lara vẫn nhận ra Mio.
 
-Ngay trước khi sự sống dần rời khỏi cơ thể, ý thức của Mio dường như đã trở lại minh mẫn trong một khoảnh khắc ngắn ngủi.
+Một tiếng gọi yếu ớt phát ra từ cổ họng bà.
 
-"Mẹ... xin lỗi..."
+“Lara…”
 
-"KHÔNG! KHÔNG ĐƯỢC!"
+Cô bé ngẩng phắt đầu.
 
-Lara vừa khóc vừa lắc đầu.
+Trong đôi mắt đã mờ đục của Mio, một thoáng tỉnh táo trở lại. Không nhiều, chỉ đủ để bà nhìn thấy khuôn mặt con gái và vệt máu còn sót bên má.
 
-"Mọi chuyện sẽ ổn thôi mà! Chúng ta sẽ ổn thôi mà, mẹ! Vậy nên... đừng đi! Mẹ ơi, MẸ!"
+“Mẹ… xin lỗi…”
 
-Cô bé cố truyền Mana của mình sang Mio, giống hệt cách mẹ từng dạy và từng làm cho cô khi cả hai còn sống trên đảo.
+“KHÔNG! Mẹ đừng nói thế!” Lara vừa khóc vừa lắc đầu. “Mọi chuyện sẽ ổn thôi mà! Chúng ta sẽ ổn thôi! Mẹ đã hứa rồi cơ mà!”
 
-Nhưng lần này, dù Lara có cố gắng đến đâu, cô vẫn không thể khiến mẹ khỏe lại.
+Cô đặt cả hai tay lên thân thể mẹ, cố dẫn dòng Mana của mình vào những lớp vảy dày cứng. Cô đã tập việc đó nhiều lần. Có lúc thành công một chút, có lúc chẳng được gì. Nhưng lần này, Mana vừa chạm vào vùng ngực đã tản ra, không thể khiến nhịp tim ngừng lại kia tiếp tục.
 
-"Lara..."
+“Làm ơn…”
 
-Mio không còn đủ sức để cử động.
+Lara cắn môi, thử lại.
 
-Dẫu vậy, bà vẫn gom chút Mana cuối cùng còn sót lại.
+“Con đã học rồi mà… Mẹ đã dạy con rồi mà…”
 
-Nước biển hòa cùng những giọt nước mắt trên gương mặt Mio, chậm rãi cuộn quanh Lara thành một lớp kén trong suốt.
+Không có kết quả.
 
-Lara vẫn cố bám lấy mẹ.
+Mio không còn đủ sức cử động. Bà nhìn con gái, và phần Mana cuối cùng vẫn đáp lại một ý nghĩ đã theo bà suốt những ngày trên đảo: giữ Lara khỏi nơi nguy hiểm.
 
-"Mẹ...?"
+Nước biển cuộn lên quanh cô bé, hợp với những giọt nước mắt còn trên má Mio thành một lớp kén trong suốt. Lara chống tay vào lớp nước, hốt hoảng.
 
-Mio nhìn con gái lần cuối.
+“Mẹ…?”
 
-Rồi lượng Mana bao quanh Lara bất chợt dao động.
+Ở một nơi xa, vòng tròn dịch chuyển cũ giữa những phiến đá trên hòn đảo bắt đầu phát sáng.
 
-Ở một nơi rất xa—
+Những ký tự Mio đã kiên trì sửa chữa trong nhiều tháng lần lượt nhận lấy dòng Mana mà bà từng chuẩn bị để kích hoạt. Vòng tròn ấy chưa bao giờ đủ để mở đường trở về Wavery. Mio chỉ khôi phục được một phần cấu trúc, biến nó thành một điểm neo có thể tiếp nhận người trở lại đúng nơi này.
 
-trên hòn đảo nơi hai mẹ con đã sống suốt một năm qua—
+Một con đường dự phòng.
 
-vòng tròn dịch chuyển cũ nằm giữa những phiến đá bất ngờ phát sáng.
+Chỉ cần hoạt động đúng một lần.
 
-Những đường nét mà Mio đã kiên trì phục dựng trong nhiều tháng lần lượt sáng lên, nối với nhau thành một vòng hoàn chỉnh.
+Mio nhìn Lara lần cuối. Cô bé vẫn cố vươn tay về phía mẹ, không hiểu vì sao nước đang đưa mình ra xa.
 
-Cô chưa từng sửa được nó đủ để đưa hai mẹ con trở về Wavery.
+“MẸ! CON KHÔNG MUỐN ĐI!”
 
-Nhưng Mio đã thành công ở một việc khác.
+Đầu ngón tay cô chỉ kịp lướt qua lớp vảy trên bàn tay Mio.
 
-Biến nơi ấy thành một điểm neo.
+Rồi không gian quanh Lara méo đi.
 
-Một con đường dự phòng chỉ cần hoạt động thêm đúng một lần.
-
-Mana của Mio bắt lấy điểm neo ấy.
-
-Không gian quanh Lara méo đi.
-
-"MẸ!"
-
-Cô bé cố vươn tay.
-
-Nhưng bàn tay nhỏ chỉ kịp lướt qua đầu ngón tay của mẹ.
-
-Rồi Lara biến mất.
+Cô biến mất.
 
 ---
 
-Khi mở mắt lần nữa, Lara đã trở về hòn đảo.
+Khi Lara mở mắt, cô đang nằm giữa vòng tròn dịch chuyển trên hòn đảo quen thuộc.
 
-Cô nằm ngay giữa vòng tròn dịch chuyển cũ.
+Lớp nước bao quanh cô tan ra, chảy xuống những khe đá. Ánh sáng trên vòng tròn nhấp nháy vài lần rồi lịm dần. Những ký tự và nét khắc mới Mio từng sửa vẫn nằm đó, nối với phần cấu trúc cũ.
 
-Ánh sáng trên những ký tự xung quanh vẫn còn lập lòe yếu ớt, rồi từng đường một dần tắt đi.
+Lara ngồi dậy, đưa tay chạm vào chúng.
 
-Lara ngồi thẫn thờ.
+“…Mẹ đã sửa được nó…”
 
-Cô nhìn những nét khắc mới nằm chồng lên phần hoa văn đã cũ.
+Cô nhớ mẹ thường lui tới nơi này, có hôm trở về rất muộn, đầu ngón tay dính bụi đá và mực viết. Cô nhớ những trang nhật ký đầy ký hiệu lạ, nhớ mẹ nói rằng cần có một con đường dự phòng.
 
-Những dấu vết của việc sửa chữa.
+Không phải con đường dẫn về Wavery.
 
-Những phần Mio đã tự tay hoàn thiện trong suốt thời gian hai mẹ con ở đây.
+Không phải phép màu đủ để cứu cả hai mẹ con.
 
-Lúc này, Lara mới hiểu.
+Chỉ là nơi họ đã biết cách tìm thức ăn, nước uống và chỗ trú ẩn. Nơi Lara đã học những điều đầu tiên để sống sót trong thế giới xa lạ, và nơi mẹ có thể đưa cô trở về mà không cần biết tọa độ nào khác.
 
-"...Mẹ đã sửa được nó..."
+Lara nhìn xuống bàn tay mình. Móng vẫn sắc hơn trước; cạnh tai và một bên gò má vẫn còn các mảng vảy cứng, vài chỗ đã nứt. Cô không biết phải làm thế nào để trở về Wavery, cũng chưa biết cách ngăn cơ thể tiếp tục thay đổi.
 
-Không phải để rời khỏi hòn đảo.
+Nhưng điều khiến cô sợ nhất lúc này không còn là hình dáng của mình.
 
-Không phải để trở về Wavery.
+Không còn thân hình khổng lồ đợi cô mang cá về.
 
-Mà để rồi, nếu một ngày nào đó mọi chuyện trở nên tồi tệ nhất—
+Không còn bàn tay đầy móng vuốt cố đặt lên đầu cô thật nhẹ.
 
-ít nhất vẫn còn một con đường đưa Lara trở lại nơi an toàn.
+Không còn ai nhắc rằng nếu ngủ quên thì sẽ bỏ lỡ bữa ăn.
 
-Cô cúi nhìn đôi bàn tay mình.
+“…Mẹ?”
 
-Không còn bóng dáng khổng lồ luôn chờ đợi cô trở về sau mỗi lần săn bắt.
+Tiếng sóng vỗ vào bờ đá.
 
-Không còn bàn tay đầy móng vuốt vẫn cố xoa đầu cô thật nhẹ.
-
-Chỉ còn hòn đảo quen thuộc.
-
-Tiếng sóng.
-
-Và những ký ức của hai mẹ con.
-
-"...Mẹ?"
-
-Lara gọi khẽ.
+“Mẹ ơi…”
 
 Không ai đáp lại.
 
-"Mẹ ơi..."
+Lara ôm lấy đầu gối, khóc nấc lên giữa hòn đảo mà hai mẹ con đã từng cùng nhau gọi là nơi trú chân. Cô khóc cho đến khi không còn đủ sức gọi thêm một tiếng nào.
 
-Rồi cô bật khóc.
+Phía sau cô, phần nước còn đọng lại trên nền đá bất chợt rung lên.
 
-Tiếng nức nở lớn dần giữa khoảng không vắng lặng.
+Những giọt nước chưa kịp tan hết từ lớp kén bảo vệ Lara dần tụ vào nhau. Dòng Mana Mio gửi cùng con gái vẫn còn lưu trong chúng, mang theo một lời nhắn cuối cùng đã được bà đặt vào trước khi mất.
 
-Trong tâm trí Lara, giọng nói của Mio vẫn còn rõ ràng, như thể mẹ đang ngồi ngay cạnh cô.
+Một hình bóng quen thuộc hiện lên.
 
-"Lara, hãy sống sót. Hãy trở thành một người tốt, hãy làm những điều khiến con không phải hối hận và..."
+Không phải Mio trở về từ cõi chết. Chỉ là hình ảnh được lưu lại trong Magic nước, mỏng manh đến mức ánh sáng xuyên qua được cả bàn tay.
 
-Phía sau Lara, lượng Mana cuối cùng còn sót lại của Mio chậm rãi tụ thành một hình bóng quen thuộc.
+Hình bóng ấy quỳ xuống sau lưng Lara, vòng tay ôm lấy cô bé từ phía sau — dịu dàng như những đêm bên đống lửa.
 
-Hình bóng ấy nhẹ nhàng quỳ xuống.
-
-Vòng tay ôm lấy cô bé từ phía sau.
-
-Rồi thì thầm:
-
-"Mẹ yêu con."
+“Mẹ yêu con.”
 
 Lara khựng lại.
 
-Đôi môi cô run lên.
+Cô biết vòng tay ấy không còn hơi ấm như trước, nhưng vẫn quay người về phía tiếng nói.
 
-"...Con cũng yêu mẹ."
+“…Con cũng yêu mẹ.”
 
-Hình bóng Mio khẽ siết vòng tay thêm một lần cuối.
+Hình bóng Mio giữ nguyên nụ cười, rồi chậm rãi tan thành những hạt sáng nhỏ. Chút Mana cuối theo làn nước thấm vào đất, chỉ để lại vài giọt lấp lánh trên tay Lara.
 
-Rồi từ từ tan thành những hạt sáng nhỏ, hòa vào Mana bên trong Lara.
+Hoàng hôn đã tắt từ lúc nào. Trên cao, mặt trăng lên dần giữa bầu trời của thế giới xa lạ.
 
-Hoàng hôn đã tắt từ lúc nào.
+Lara ngồi đó rất lâu. Khi tiếng nức nở chỉ còn là những nhịp thở rời rạc, cô bé lau mặt, chống tay đứng dậy.
 
-Mặt trăng dần lên cao, ánh sáng nhợt nhạt phủ xuống hòn đảo.
+Phía sau, vòng tròn dịch chuyển đã hoàn toàn tối đi. Nó sẽ không thể đưa Lara trở lại Seawind, cũng không thể mở ra con đường về Wavery.
 
-Lara vẫn ngồi đó rất lâu.
-
-Cho đến khi tiếng khóc chỉ còn là những nhịp thở đứt quãng.
-
-Cuối cùng, cô bé đưa tay lau nước mắt.
-
-Chậm rãi đứng dậy.
-
-Phía sau Lara, vòng tròn dịch chuyển đã hoàn toàn tối đi.
-
-Không còn một chút Mana nào lưu chuyển bên trong.
-
-Nó đã hoàn thành mục đích cuối cùng mà Mio dành cho nó.
+Nó đã hoàn thành mục đích cuối cùng Mio dành cho nó.
 
 Đưa con gái mình về nhà.
